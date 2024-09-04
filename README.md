@@ -1,4 +1,4 @@
-<h3 align="left">🚀 Hey there, I'm Tanish — your go-to developer and freelance powerhouse! With a flair for innovation, I proudly co-founded Dotix and Niotron, revolutionizing the digital realm one project at a time. Let's create something amazing together!</h3>
+<h3 align="left">👋 Hey there, I'm Tanish — your go-to developer and freelance powerhouse! With a flair for innovation, I proudly co-founded Dotix and Niotron, revolutionizing the digital realm one project at a time. Let's create something amazing together!</h3>
 
 ###
 
@@ -67,11 +67,5 @@
     <img src="https://img.shields.io/static/v1?message=Stackoverflow&logo=stackoverflow&label=&color=FE7A16&logoColor=white&labelColor=&style=for-the-badge" height="35" alt="stackoverflow logo"  />
   </a>
 </div>
-
-###
-
-<br clear="both">
-
-<img src="https://profile-readme-generator.com/assets/snake.svg" alt="Snake animation" />
 
 ###
