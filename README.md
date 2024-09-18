@@ -66,6 +66,9 @@
   <a href="https://stackoverflow.com/users/14942696/ct-tricks" target="_blank">
     <img src="https://img.shields.io/static/v1?message=Stackoverflow&logo=stackoverflow&label=&color=FE7A16&logoColor=white&labelColor=&style=for-the-badge" height="35" alt="stackoverflow logo"  />
   </a>
+  <a href="https://dly.to/utDQ7EBQn6W" target="_blank">
+    <img src="https://api.cttricks.com/pixel/daily-dev-badge" height="35" alt="dev.to logo"  />
+  </a>
 </div>
 
 ###
