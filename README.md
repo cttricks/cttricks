@@ -74,3 +74,6 @@
 </div>
 
 ###
+
+#### Quote Of the Day
+*“It is one of the blessings of this world that few people see visions and dream dreams.”* — Zora Neale Hurston
