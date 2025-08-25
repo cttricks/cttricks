@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It is one of the blessings of this world that few people see visions and dream dreams.”* — Zora Neale Hurston
+*“The course of the flight up and down was exceedingly erratic, partly due to the irregularity of the air, and partly to lack of experience in handling this machine. The control of the front rudder was difficult on account of its being balanced too near the center.”* — Orville Wright
