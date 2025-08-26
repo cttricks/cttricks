@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The course of the flight up and down was exceedingly erratic, partly due to the irregularity of the air, and partly to lack of experience in handling this machine. The control of the front rudder was difficult on account of its being balanced too near the center.”* — Orville Wright
+*“The best interpreter of the law is custom.”* — Marcus Tullius Cicero
