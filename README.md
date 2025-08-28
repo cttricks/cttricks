@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“President Ford was a devoted, decent man of impeccable integrity who put service to his country before his own self interest. He helped heal our nation during a time of crisis, provided steady leadership and restored people's faith in the presidency and in government.”* — Mark Udall
+*“I've got all the money I'll ever need, if I die by four o'clock.”* — Henny Youngman
