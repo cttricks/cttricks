@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I've got all the money I'll ever need, if I die by four o'clock.”* — Henny Youngman
+*“I'm not a car guy. The subway gets me where I need to go efficiently and cheaply, and I don't worry about traffic.”* — Joe Scarborough
