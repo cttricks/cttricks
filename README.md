@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I'm not a car guy. The subway gets me where I need to go efficiently and cheaply, and I don't worry about traffic.”* — Joe Scarborough
+*“The UK desperately needs less government and freer markets.”* — Rupert Murdoch
