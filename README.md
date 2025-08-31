@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The UK desperately needs less government and freer markets.”* — Rupert Murdoch
+*“Panic is a sudden desertion of us, and a going over to the enemy of our imagination.”* — Christian Nestell Bovee
