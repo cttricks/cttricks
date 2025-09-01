@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Panic is a sudden desertion of us, and a going over to the enemy of our imagination.”* — Christian Nestell Bovee
+*“I think we were raised in a nice Texas Jewish family where education was the most important thing, and close behind that was the arts. It was emphasized and expected that we'd play piano.”* — Lisa Loeb
