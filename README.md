@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I think we were raised in a nice Texas Jewish family where education was the most important thing, and close behind that was the arts. It was emphasized and expected that we'd play piano.”* — Lisa Loeb
+*“Going to the theater is such a joyous experience. My dad would take my sister and me to plays when we were very young, like six or seven years old.”* — Julia Roberts
