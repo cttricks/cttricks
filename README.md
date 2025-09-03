@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Going to the theater is such a joyous experience. My dad would take my sister and me to plays when we were very young, like six or seven years old.”* — Julia Roberts
+*“If you love life, don't waste time, for time is what life is made up of.”* — Bruce Lee
