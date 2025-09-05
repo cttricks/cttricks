@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I decided to go to school for advertising and graphic design. That was what I was gonna do but acting is that thing, it's like a splinter in your mind and you can't get rid of it. So I decided to move to L.A. a few years ago and it just snowballed into this thing called 'The Hunger Games.'”* — Dayo Okeniyi
+*“Yeah, I know I'm ugly... I said to a bartender, 'Make me a zombie.' He said 'God beat me to it.'”* — Rodney Dangerfield
