@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Yeah, I know I'm ugly... I said to a bartender, 'Make me a zombie.' He said 'God beat me to it.'”* — Rodney Dangerfield
+*“Through my optimism I naturally prefer and capture the beauty in life.”* — Leni Riefenstahl
