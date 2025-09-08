@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Man's only true happiness is to live in hope of something to be won by him. Reverence something to be worshipped by him, and love something to be cherished by him, forever.”* — John Ruskin
+*“With fitness, I do Bikrams hot yoga. The gym that I have in my building is amazing. I love to do cardio and weights there.”* — Shay Mitchell
