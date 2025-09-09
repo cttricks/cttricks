@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“With fitness, I do Bikrams hot yoga. The gym that I have in my building is amazing. I love to do cardio and weights there.”* — Shay Mitchell
+*“Emotional 'literacy' implies an expanded responsibility for schools in helping to socialize children. This daunting task requires two major changes: that teachers go beyond their traditional mission and that people in the community become more involved with schools as both active participants in children's learning and as individual mentors.”* — Daniel Goleman
