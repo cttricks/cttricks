@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“And if the imam and the Muslim leadership in that community is so intent on building bridges, then they should voluntarily move the mosque away from ground zero and move it whether it's uptown or somewhere else, but move it away from that area, the same as the pope directed the Carmelite nuns to move a convent away from Auschwitz.”* — Peter King
+*“Moreover, environmental health at the local level has become narrowly focused, very much defined around regulations and the attendant regulatory debates.”* — Samuel Wilson
