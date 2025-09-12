@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Moreover, environmental health at the local level has become narrowly focused, very much defined around regulations and the attendant regulatory debates.”* — Samuel Wilson
+*“I pretty much borrow my entire beauty regime from my mom.”* — Rashida Jones
