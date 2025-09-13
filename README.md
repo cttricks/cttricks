@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I pretty much borrow my entire beauty regime from my mom.”* — Rashida Jones
+*“I think it is totally wrong and terribly harmful if education is defined as acquiring knowledge.”* — William Glasser
