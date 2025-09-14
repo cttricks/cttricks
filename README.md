@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I think it is totally wrong and terribly harmful if education is defined as acquiring knowledge.”* — William Glasser
+*“When I was doing 'Scarface,' I remember being in love at that time. One of the few times in my life. And I was so glad it was at that time. I would come home and she would tell me about her life that day and all her problems and I remember saying to her, look, you really got me through this picture because I would shed everything when I came home.”* — Al Pacino
