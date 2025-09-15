@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“When I was doing 'Scarface,' I remember being in love at that time. One of the few times in my life. And I was so glad it was at that time. I would come home and she would tell me about her life that day and all her problems and I remember saying to her, look, you really got me through this picture because I would shed everything when I came home.”* — Al Pacino
+*“My reading of history convinces me that most bad government results from too much government.”* — Thomas Jefferson
