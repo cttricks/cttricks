@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“My reading of history convinces me that most bad government results from too much government.”* — Thomas Jefferson
+*“Let the wife make the husband glad to come home, and let him make her sorry to see him leave.”* — Martin Luther
