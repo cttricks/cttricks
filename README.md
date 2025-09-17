@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Let the wife make the husband glad to come home, and let him make her sorry to see him leave.”* — Martin Luther
+*“I am sorry to say that there is too much point to the wisecrack that life is extinct on other planets because their scientists were more advanced than ours.”* — John F. Kennedy
