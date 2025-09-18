@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I am sorry to say that there is too much point to the wisecrack that life is extinct on other planets because their scientists were more advanced than ours.”* — John F. Kennedy
+*“I have never met a woman who works who doesn't feel guilty. I mean we all deny it like crazy but deep down there is always that voice saying you should be at home.”* — Kristin Scott Thomas
