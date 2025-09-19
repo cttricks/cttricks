@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I have never met a woman who works who doesn't feel guilty. I mean we all deny it like crazy but deep down there is always that voice saying you should be at home.”* — Kristin Scott Thomas
+*“There are no necessary evils in government. Its evils exist only in its abuses.”* — Andrew Jackson
