@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“There are no necessary evils in government. Its evils exist only in its abuses.”* — Andrew Jackson
+*“It is reasonable to expect the doctor to recognize that science may not have all the answers to problems of health and healing.”* — Norman Cousins
