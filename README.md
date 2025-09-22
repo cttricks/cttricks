@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Everything seems fine until you're about 40. Then something is definitely beginning to go wrong. And you look in the mirror with your old habit of thinking, 'While I accept that everyone grows old and dies, it's a funny thing, but I'm an exception to that rule.'”* — Martin Amis
+*“Not even old age knows how to love death.”* — Sophocles
