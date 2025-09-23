@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Not even old age knows how to love death.”* — Sophocles
+*“I don't change. The things around me change.”* — Jeremy Renner
