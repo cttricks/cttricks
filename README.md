@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I don't change. The things around me change.”* — Jeremy Renner
+*“Choose your life's mate carefully. From this one decision will come 90 percent of all your happiness or misery.”* — H. Jackson Brown, Jr.
