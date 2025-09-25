@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Choose your life's mate carefully. From this one decision will come 90 percent of all your happiness or misery.”* — H. Jackson Brown, Jr.
+*“That government is the strongest of which every man feels himself a part.”* — Thomas Jefferson
