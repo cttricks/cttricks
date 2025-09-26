@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“That government is the strongest of which every man feels himself a part.”* — Thomas Jefferson
+*“God always gives His best to those who leave the choice with him.”* — Jim Elliot
