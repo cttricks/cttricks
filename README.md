@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“God always gives His best to those who leave the choice with him.”* — Jim Elliot
+*“Dating is all about the chase. It's fun!”* — Lauren Conrad
