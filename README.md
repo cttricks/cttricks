@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Dating is all about the chase. It's fun!”* — Lauren Conrad
+*“I decided to pursue music, so I dropped out of school and I told my parents I didn't want any money from them. I got three jobs and I just hit the ground running.”* — Lady Gaga
