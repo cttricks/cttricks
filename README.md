@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I decided to pursue music, so I dropped out of school and I told my parents I didn't want any money from them. I got three jobs and I just hit the ground running.”* — Lady Gaga
+*“The essence of all beautiful art, all great art, is gratitude.”* — Friedrich Nietzsche
