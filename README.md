@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The essence of all beautiful art, all great art, is gratitude.”* — Friedrich Nietzsche
+*“What you hope for, like Unforgiven did a lot to give you a chance to do it again sometime.”* — Lawrence Kasdan
