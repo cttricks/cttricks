@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“What you hope for, like Unforgiven did a lot to give you a chance to do it again sometime.”* — Lawrence Kasdan
+*“Where terrorists offer injustice, disorder and destruction, the United States and its allies stand for freedom, fairness, equality, hope, and opportunity.”* — John O. Brennan
