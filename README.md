@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Where terrorists offer injustice, disorder and destruction, the United States and its allies stand for freedom, fairness, equality, hope, and opportunity.”* — John O. Brennan
+*“Aren't we at the point where the closer we get to chaos, the more concern that there should be about coming to the table and compromising with Democrats? This is not leadership. This is almost like dictatorship.”* — Debbie Wasserman Schultz
