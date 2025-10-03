@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Aren't we at the point where the closer we get to chaos, the more concern that there should be about coming to the table and compromising with Democrats? This is not leadership. This is almost like dictatorship.”* — Debbie Wasserman Schultz
+*“Find joy in everything you choose to do. Every job, relationship, home... it's your responsibility to love it, or change it.”* — Chuck Palahniuk
