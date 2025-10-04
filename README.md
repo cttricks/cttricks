@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Find joy in everything you choose to do. Every job, relationship, home... it's your responsibility to love it, or change it.”* — Chuck Palahniuk
+*“I am not suggesting that all those missionary organizations working in Haiti should pack up and go home, but I am urging them to understand that Haiti does not need clever Americans with newly contrived schemes for saving their country.”* — Tony Campolo
