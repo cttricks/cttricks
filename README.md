@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I am not suggesting that all those missionary organizations working in Haiti should pack up and go home, but I am urging them to understand that Haiti does not need clever Americans with newly contrived schemes for saving their country.”* — Tony Campolo
+*“Fairy tales opened up a door into my imagination - they don't conform to the reality that's around you as a child. I started reading when I was three and read everything, but I wanted to be an actress.”* — Kate Atkinson
