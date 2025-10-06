@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Fairy tales opened up a door into my imagination - they don't conform to the reality that's around you as a child. I started reading when I was three and read everything, but I wanted to be an actress.”* — Kate Atkinson
+*“If one of two lovers is loyal, and the other jealous and false, how may their friendship last, for Love is slain!”* — Marie de France
