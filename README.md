@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“If one of two lovers is loyal, and the other jealous and false, how may their friendship last, for Love is slain!”* — Marie de France
+*“Leadership has a harder job to do than just choose sides. It must bring sides together.”* — Jesse Jackson
