@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Leadership has a harder job to do than just choose sides. It must bring sides together.”* — Jesse Jackson
+*“The man of genius is he and he alone who finds such joy in his art that he will work at it come hell or high water.”* — Stendhal
