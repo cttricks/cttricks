@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The man of genius is he and he alone who finds such joy in his art that he will work at it come hell or high water.”* — Stendhal
+*“What Churchill described as the twin marauders of war and tyranny have been almost entirely banished from our continent. Today, hundreds of millions dwell in freedom, from the Baltic to the Adriatic, from the Western Approaches to the Aegean.”* — David Cameron
