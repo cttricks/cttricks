@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“What Churchill described as the twin marauders of war and tyranny have been almost entirely banished from our continent. Today, hundreds of millions dwell in freedom, from the Baltic to the Adriatic, from the Western Approaches to the Aegean.”* — David Cameron
+*“Today the demands are for even higher standards in the quality of care, for greater flexibility and convenience in treatment times, and for more prevention through screening and health checks.”* — Lucy Powell
