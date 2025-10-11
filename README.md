@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Today the demands are for even higher standards in the quality of care, for greater flexibility and convenience in treatment times, and for more prevention through screening and health checks.”* — Lucy Powell
+*“Death is not the greatest loss in life. The greatest loss is what dies inside us while we live.”* — Norman Cousins
