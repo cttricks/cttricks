@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Death is not the greatest loss in life. The greatest loss is what dies inside us while we live.”* — Norman Cousins
+*“I'm tired of hearing it said that democracy doesn't work. Of course it doesn't work. We are supposed to work it.”* — Alexander Woollcott
