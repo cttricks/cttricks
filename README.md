@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I'm tired of hearing it said that democracy doesn't work. Of course it doesn't work. We are supposed to work it.”* — Alexander Woollcott
+*“I have no mystic faith in the people. I have in the individual.”* — E. M. Forster
