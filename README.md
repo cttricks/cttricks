@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I have no mystic faith in the people. I have in the individual.”* — E. M. Forster
+*“I have known a vast quantity of nonsense talked about bad men not looking you in the face. Don't trust that conventional idea. Dishonesty will stare honesty out of countenance any day in the week, if there is anything to be got by it.”* — Charles Dickens
