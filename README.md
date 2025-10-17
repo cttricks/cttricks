@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Confusion of goals and perfection of means seems, in my opinion, to characterize our age.”* — Albert Einstein
+*“We tried to have diplomas without learning, we tried to have jobs without work, we tried to have houses without savings, we tried to have government without responsibility.”* — Newt Gingrich
