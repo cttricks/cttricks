@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“We tried to have diplomas without learning, we tried to have jobs without work, we tried to have houses without savings, we tried to have government without responsibility.”* — Newt Gingrich
+*“I love music, and after my first experience with movies, I can't wait to do more.”* — Rihanna
