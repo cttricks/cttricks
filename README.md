@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I love music, and after my first experience with movies, I can't wait to do more.”* — Rihanna
+*“In aid, the proper attitude is one omitting gratitude.”* — Marya Mannes
