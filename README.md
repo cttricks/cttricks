@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“In aid, the proper attitude is one omitting gratitude.”* — Marya Mannes
+*“To communicate the truths of history is an act of hope for the future.”* — Daisaku Ikeda
