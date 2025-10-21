@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“To communicate the truths of history is an act of hope for the future.”* — Daisaku Ikeda
+*“An inexhaustible good nature is one of the most precious gifts of heaven, spreading itself like oil over the troubled sea of thought, and keeping the mind smooth and equable in the roughest weather.”* — Washington Irving
