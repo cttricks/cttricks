@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“An inexhaustible good nature is one of the most precious gifts of heaven, spreading itself like oil over the troubled sea of thought, and keeping the mind smooth and equable in the roughest weather.”* — Washington Irving
+*“A lot of people do not muster the courage to live their dreams because they are afraid to die.”* — Les Brown
