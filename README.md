@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“A lot of people do not muster the courage to live their dreams because they are afraid to die.”* — Les Brown
+*“I don't work out and be healthy and want a strong body because I want to look good in a bikini. I do all of those things for me and for my health. I'm not going on the cover of 'Maxim' and 'FHM' because that's not me.”* — Maggie Q
