@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I don't work out and be healthy and want a strong body because I want to look good in a bikini. I do all of those things for me and for my health. I'm not going on the cover of 'Maxim' and 'FHM' because that's not me.”* — Maggie Q
+*“In my family, there was one cardinal priority - education. College was not an option it was mandatory. So even though we didn't have a lot of money, we made it work. I signed up for financial aid, Pell Grants, work study, anything I could.”* — Eva Longoria
