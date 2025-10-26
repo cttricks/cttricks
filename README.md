@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“We say keep your change, we'll keep our God, our guns, our constitution.”* — Sarah Palin
+*“If you're going to go through hell... I suggest you come back learning something.”* — Drew Barrymore
