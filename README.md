@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“If you're going to go through hell... I suggest you come back learning something.”* — Drew Barrymore
+*“Let food be thy medicine and medicine be thy food.”* — Hippocrates
