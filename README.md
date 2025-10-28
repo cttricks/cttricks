@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Let food be thy medicine and medicine be thy food.”* — Hippocrates
+*“History suggests that capitalism is a necessary condition for political freedom. Clearly it is not a sufficient condition.”* — Milton Friedman
