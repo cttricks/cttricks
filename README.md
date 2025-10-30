@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“A moment comes, which comes but rarely in history, when we step out from the old to the new when an age ends and when the soul of a nation long suppressed finds utterance.”* — Jawaharlal Nehru
+*“Murals in restaurants are on a par with the food in museums.”* — Peter De Vries
