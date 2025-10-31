@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Murals in restaurants are on a par with the food in museums.”* — Peter De Vries
+*“I was baptized alongside my mother when I was 8 years old. Since then, I have tried to walk a Christian life. And now that I'm getting older, I realized that I'm walking even closer with my God.”* — Andy Griffith
