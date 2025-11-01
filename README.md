@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I was baptized alongside my mother when I was 8 years old. Since then, I have tried to walk a Christian life. And now that I'm getting older, I realized that I'm walking even closer with my God.”* — Andy Griffith
+*“One of the great strengths of the United States is... we have a very large Christian population - we do not consider ourselves a Christian nation or a Jewish nation or a Muslim nation. We consider ourselves a nation of citizens who are bound by ideals and a set of values.”* — Barack Obama
