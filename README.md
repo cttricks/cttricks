@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“One of the great strengths of the United States is... we have a very large Christian population - we do not consider ourselves a Christian nation or a Jewish nation or a Muslim nation. We consider ourselves a nation of citizens who are bound by ideals and a set of values.”* — Barack Obama
+*“Goodness is about character - integrity, honesty, kindness, generosity, moral courage, and the like. More than anything else, it is about how we treat other people.”* — Dennis Prager
