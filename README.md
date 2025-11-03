@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Goodness is about character - integrity, honesty, kindness, generosity, moral courage, and the like. More than anything else, it is about how we treat other people.”* — Dennis Prager
+*“Successful entrepreneurs find the balance between listening to their inner voice and staying persistent in driving for success - because sometimes success is waiting right across from the transitional bump that's disguised as failure.”* — Naveen Jain
