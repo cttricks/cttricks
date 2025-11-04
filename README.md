@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Successful entrepreneurs find the balance between listening to their inner voice and staying persistent in driving for success - because sometimes success is waiting right across from the transitional bump that's disguised as failure.”* — Naveen Jain
+*“Television is an invention that permits you to be entertained in your living room by people you wouldn't have in your home.”* — David Frost
