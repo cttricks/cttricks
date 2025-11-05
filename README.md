@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Television is an invention that permits you to be entertained in your living room by people you wouldn't have in your home.”* — David Frost
+*“When they call the slightest spending reductions 'painful', we will say 'If government spending prevents pain, why are we suffering so much of it?' And 'If you want to experience real pain, just stay on the track we are on.'”* — Mitch Daniels
