@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“When they call the slightest spending reductions 'painful', we will say 'If government spending prevents pain, why are we suffering so much of it?' And 'If you want to experience real pain, just stay on the track we are on.'”* — Mitch Daniels
+*“The making of friends who are real friends, is the best token we have of a man's success in life.”* — Edward Everett Hale
