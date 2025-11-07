@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The making of friends who are real friends, is the best token we have of a man's success in life.”* — Edward Everett Hale
+*“Change will never happen when people lack the ability and courage to see themselves for who they are.”* — Bryant H. McGill
