@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Change will never happen when people lack the ability and courage to see themselves for who they are.”* — Bryant H. McGill
+*“Football is a simple game. Twenty-two men chase a ball for 90 minutes and at the end, the Germans always win.”* — Gary Lineker
