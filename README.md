@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Football is a simple game. Twenty-two men chase a ball for 90 minutes and at the end, the Germans always win.”* — Gary Lineker
+*“I like being a woman, even in a man's world. After all, men can't wear dresses, but we can wear the pants.”* — Whitney Houston
