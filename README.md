@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I like being a woman, even in a man's world. After all, men can't wear dresses, but we can wear the pants.”* — Whitney Houston
+*“I had a happy marriage and a nice wife. I accomplished everything you can. What more can you want?”* — Max Schmeling
