@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I had a happy marriage and a nice wife. I accomplished everything you can. What more can you want?”* — Max Schmeling
+*“It is a mistake to suppose that men succeed through success they much oftener succeed through failures. Precept, study, advice, and example could never have taught them so well as failure has done.”* — Samuel Smiles
