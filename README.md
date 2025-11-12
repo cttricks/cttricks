@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It is a mistake to suppose that men succeed through success they much oftener succeed through failures. Precept, study, advice, and example could never have taught them so well as failure has done.”* — Samuel Smiles
+*“Our life dreams the Utopia. Our death achieves the Ideal.”* — Victor Hugo
