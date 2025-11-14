@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“My wife and I had decided not to let anybody take pictures of our home because it was just the last place on earth we had that was unscathed. But people have climbed over the fence they've taken aerial shots. They've gotten my address and put it on the Internet.”* — Steven Tyler
+*“The ideal man bears the accidents of life with dignity and grace, making the best of circumstances.”* — Aristotle
