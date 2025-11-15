@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The ideal man bears the accidents of life with dignity and grace, making the best of circumstances.”* — Aristotle
+*“I don't rehearse a lot. I try to keep it organic. Even in movies, the less I rehearse, the better I am.”* — Kristen Wiig
