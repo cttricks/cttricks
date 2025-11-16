@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I don't rehearse a lot. I try to keep it organic. Even in movies, the less I rehearse, the better I am.”* — Kristen Wiig
+*“Democratic nations must try to find ways to starve the terrorist and the hijacker of the oxygen of publicity on which they depend.”* — Margaret Thatcher
