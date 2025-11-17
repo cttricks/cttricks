@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Democratic nations must try to find ways to starve the terrorist and the hijacker of the oxygen of publicity on which they depend.”* — Margaret Thatcher
+*“We want to repeal the ObamaCare tax. We want to save middle class families from European health care. And that's what we're going to do as a party and that's what Mitt Romney will do on day one.”* — Reince Priebus
