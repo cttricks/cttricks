@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“We want to repeal the ObamaCare tax. We want to save middle class families from European health care. And that's what we're going to do as a party and that's what Mitt Romney will do on day one.”* — Reince Priebus
+*“Poetry lifts the veil from the hidden beauty of the world, and makes familiar objects be as if they were not familiar.”* — Percy Bysshe Shelley
