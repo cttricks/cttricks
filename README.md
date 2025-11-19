@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Poetry lifts the veil from the hidden beauty of the world, and makes familiar objects be as if they were not familiar.”* — Percy Bysshe Shelley
+*“If China is helping its domestic industries charge an artificially low price for solar panels and other environmental goods, then China is violating international trade rules that it agreed to when it became a member of the World Trade Organization.”* — Ron Wyden
