@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“If China is helping its domestic industries charge an artificially low price for solar panels and other environmental goods, then China is violating international trade rules that it agreed to when it became a member of the World Trade Organization.”* — Ron Wyden
+*“My health is very much improved.”* — Lech Walesa
