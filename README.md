@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“My health is very much improved.”* — Lech Walesa
+*“The greatest happiness is to know the source of unhappiness.”* — Fyodor Dostoevsky
