@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The greatest happiness is to know the source of unhappiness.”* — Fyodor Dostoevsky
+*“People in tough times - it doesn't mean they don't have a great attitude.”* — Joel Osteen
