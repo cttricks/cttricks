@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“People in tough times - it doesn't mean they don't have a great attitude.”* — Joel Osteen
+*“A writer should write with his eyes and a painter paint with his ears.”* — Gertrude Stein
