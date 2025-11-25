@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“When I get old, I'm going to the old folks' home. I don't want to be one of those guys who's hanging around the house bothering the kids. But not just any old folks' home. I want the whole top floor.”* — Shaquille O'Neal
+*“Diabetes affects my family. One of my kids is affected by it.”* — John Ratzenberger
