@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Diabetes affects my family. One of my kids is affected by it.”* — John Ratzenberger
+*“There is a great deal of difference between an eager man who wants to read a book and the tired man who wants a book to read.”* — Gilbert K. Chesterton
