@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“There is a great deal of difference between an eager man who wants to read a book and the tired man who wants a book to read.”* — Gilbert K. Chesterton
+*“Instead of giving money to found colleges to promote learning, why don't they pass a constitutional amendment prohibiting anybody from learning anything? If it works as good as the Prohibition one did, why, in five years we would have the smartest race of people on earth.”* — Will Rogers
