@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Instead of giving money to found colleges to promote learning, why don't they pass a constitutional amendment prohibiting anybody from learning anything? If it works as good as the Prohibition one did, why, in five years we would have the smartest race of people on earth.”* — Will Rogers
+*“Art is the imposing of a pattern on experience, and our aesthetic enjoyment is recognition of the pattern.”* — Alfred North Whitehead
