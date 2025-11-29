@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Art is the imposing of a pattern on experience, and our aesthetic enjoyment is recognition of the pattern.”* — Alfred North Whitehead
+*“Success is the result of behavior that completely contradicts the usual expectations about the behavior of a successful person.”* — Paturi, Felix R.
