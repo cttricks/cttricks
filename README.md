@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Success is the result of behavior that completely contradicts the usual expectations about the behavior of a successful person.”* — Paturi, Felix R.
+*“With an eye made quiet by the power of harmony, and the deep power of joy, we see into the life of things.”* — William Wordsworth
