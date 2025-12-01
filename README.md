@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“With an eye made quiet by the power of harmony, and the deep power of joy, we see into the life of things.”* — William Wordsworth
+*“Farrah Fawcett had courage, she had strength, and she had faith.”* — Jaclyn Smith
