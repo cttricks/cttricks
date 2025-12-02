@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Farrah Fawcett had courage, she had strength, and she had faith.”* — Jaclyn Smith
+*“We cannot continue. Our pension costs and health care costs for our employees are going to bankrupt this city.”* — Michael Bloomberg
