@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I have a family to support. And I'm not always going to be doing exactly what I want to do.”* — Patrick Warburton
+*“Government stimulates the democrat party.”* — Rush Limbaugh
