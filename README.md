@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Government stimulates the democrat party.”* — Rush Limbaugh
+*“I'm a massive fan of Drake, and we walked right past him. He's too cool to be clapping One Direction though.”* — Zayn Malik
