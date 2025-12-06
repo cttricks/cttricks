@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I'm a massive fan of Drake, and we walked right past him. He's too cool to be clapping One Direction though.”* — Zayn Malik
+*“A free and open Internet should not have to be weighed down by legal challenges - its dynamism is essential to our economy.”* — Anna Eshoo
