@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“A free and open Internet should not have to be weighed down by legal challenges - its dynamism is essential to our economy.”* — Anna Eshoo
+*“And the Republican Party especially associates the market with the idea of progress, goodness, family, and points us toward the mall as an answer to all our personal dreams.”* — Arlie Russell Hochschild
