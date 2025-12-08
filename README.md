@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“And the Republican Party especially associates the market with the idea of progress, goodness, family, and points us toward the mall as an answer to all our personal dreams.”* — Arlie Russell Hochschild
+*“Not only does God play dice, but... he sometimes throws them where they cannot be seen.”* — Stephen Hawking
