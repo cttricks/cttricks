@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Not only does God play dice, but... he sometimes throws them where they cannot be seen.”* — Stephen Hawking
+*“You come home, and you party. But after that, you get a hangover. Everything about that is negative.”* — Mike Tyson
