@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“You come home, and you party. But after that, you get a hangover. Everything about that is negative.”* — Mike Tyson
+*“In the first book of my Discworld series, published more than 26 years ago, I introduced Death as a character there was nothing particularly new about this - death has featured in art and literature since medieval times, and for centuries we have had a fascination with the Grim Reaper.”* — Terry Pratchett
