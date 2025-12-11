@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“In the first book of my Discworld series, published more than 26 years ago, I introduced Death as a character there was nothing particularly new about this - death has featured in art and literature since medieval times, and for centuries we have had a fascination with the Grim Reaper.”* — Terry Pratchett
+*“The best security for civilization is the dwelling, and upon properly appointed and becoming dwellings depends, more than anything else, the improvement of mankind.”* — Benjamin Disraeli
