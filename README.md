@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The best security for civilization is the dwelling, and upon properly appointed and becoming dwellings depends, more than anything else, the improvement of mankind.”* — Benjamin Disraeli
+*“What we call happiness in the strictest sense comes from the (preferably sudden) satisfaction of needs which have been dammed up to a high degree. ”* — Freud, Sigmund
