@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“What we call happiness in the strictest sense comes from the (preferably sudden) satisfaction of needs which have been dammed up to a high degree. ”* — Freud, Sigmund
+*“The steady expansion of welfare programs can be taken as a measure of the steady disintegration of the Negro family structure over the past generation in the United States.”* — Daniel Patrick Moynihan
