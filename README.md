@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The steady expansion of welfare programs can be taken as a measure of the steady disintegration of the Negro family structure over the past generation in the United States.”* — Daniel Patrick Moynihan
+*“After all, it's the future of business communication that we're looking toward.”* — Jim Barksdale
