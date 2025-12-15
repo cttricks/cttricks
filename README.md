@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“After all, it's the future of business communication that we're looking toward.”* — Jim Barksdale
+*“I can definitely say the older I've got the better I've become at being a dad and a husband.”* — Rod Stewart
