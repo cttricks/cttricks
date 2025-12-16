@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I can definitely say the older I've got the better I've become at being a dad and a husband.”* — Rod Stewart
+*“Deliver me from writers who say the way they live doesn't matter. I'm not sure a bad person can write a good book, If art doesn't make us better, then what on earth is it for.”* — Alice Walker
