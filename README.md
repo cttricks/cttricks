@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Deliver me from writers who say the way they live doesn't matter. I'm not sure a bad person can write a good book, If art doesn't make us better, then what on earth is it for.”* — Alice Walker
+*“The things that have been most valuable to me I did not learn in school.”* — Will Smith
