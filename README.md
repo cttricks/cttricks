@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The things that have been most valuable to me I did not learn in school.”* — Will Smith
+*“You know why there's a Second Amendment? In case the government fails to follow the first one.”* — Rush Limbaugh
