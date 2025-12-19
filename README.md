@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“You know why there's a Second Amendment? In case the government fails to follow the first one.”* — Rush Limbaugh
+*“Mistakes are always forgivable, if one has the courage to admit them.”* — Bruce Lee
