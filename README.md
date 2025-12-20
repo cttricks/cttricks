@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Mistakes are always forgivable, if one has the courage to admit them.”* — Bruce Lee
+*“It's not difficult for me to stay healthy. I like healthy food.”* — Heidi Klum
