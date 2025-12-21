@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It's not difficult for me to stay healthy. I like healthy food.”* — Heidi Klum
+*“A major advantage of age is learning to accept people without passing judgment.”* — Liz Carpenter
