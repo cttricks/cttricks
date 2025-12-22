@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“A major advantage of age is learning to accept people without passing judgment.”* — Liz Carpenter
+*“Good breeding consists in concealing how much we think of ourselves and how little we think of the other person.”* — Mark Twain
