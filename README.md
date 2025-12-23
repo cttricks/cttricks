@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Good breeding consists in concealing how much we think of ourselves and how little we think of the other person.”* — Mark Twain
+*“Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.”* — Francis of Assisi
