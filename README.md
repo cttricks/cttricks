@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.”* — Francis of Assisi
+*“Any idiot can get laid when they're famous. That's easy. It's getting laid when you're not famous that takes some talent.”* — Kevin Bacon
