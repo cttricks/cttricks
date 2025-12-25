@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Any idiot can get laid when they're famous. That's easy. It's getting laid when you're not famous that takes some talent.”* — Kevin Bacon
+*“The problem with having a sense of humor is often that people you use it on aren't in a very good mood.”* — Lou Holtz
