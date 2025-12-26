@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The problem with having a sense of humor is often that people you use it on aren't in a very good mood.”* — Lou Holtz
+*“Must not all things at the last be swallowed up in death?”* — Plato
