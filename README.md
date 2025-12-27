@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Must not all things at the last be swallowed up in death?”* — Plato
+*“Satisfaction consists in freedom from pain, which is the positive element of life.”* — Arthur Schopenhauer
