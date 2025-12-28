@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Satisfaction consists in freedom from pain, which is the positive element of life.”* — Arthur Schopenhauer
+*“It's not catastrophes, murders, deaths, diseases, that age and kill us it's the way people look and laugh, and run up the steps of omnibuses.”* — Virginia Woolf
