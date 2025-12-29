@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It's not catastrophes, murders, deaths, diseases, that age and kill us it's the way people look and laugh, and run up the steps of omnibuses.”* — Virginia Woolf
+*“If we don't succeed we run the risk of failure.”* — Dan Quayle
