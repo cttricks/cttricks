@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“If we don't succeed we run the risk of failure.”* — Dan Quayle
+*“For evil to flourish, it only requires good men to do nothing.”* — Simon Wiesenthal
