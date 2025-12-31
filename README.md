@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“For evil to flourish, it only requires good men to do nothing.”* — Simon Wiesenthal
+*“Neither a man nor a crowd nor a nation can be trusted to act humanely or to think sanely under the influence of a great fear.”* — Bertrand Russell
