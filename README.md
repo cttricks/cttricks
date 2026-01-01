@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Neither a man nor a crowd nor a nation can be trusted to act humanely or to think sanely under the influence of a great fear.”* — Bertrand Russell
+*“The aesthetic came along the way, I think - just through experimenting, and going on tour, and trying stuff out on stage, having fun with it, and not taking it too seriously. If I had a ballgown at home, I'd wear it onstage. If I found something in a charity shop, I'd wear it. That's where it grew from - just wanting to play dress-up.”* — Florence Welch
