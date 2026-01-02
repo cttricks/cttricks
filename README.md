@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The aesthetic came along the way, I think - just through experimenting, and going on tour, and trying stuff out on stage, having fun with it, and not taking it too seriously. If I had a ballgown at home, I'd wear it onstage. If I found something in a charity shop, I'd wear it. That's where it grew from - just wanting to play dress-up.”* — Florence Welch
+*“If I wasn't even famous or had any success, I would still wake up and put tons of make-up on, and put on a cool outfit. That's always been who I've been my whole life, so that's never gonna change. I love fashion. I love getting dressed up. I love Halloween, too.”* — Gwen Stefani
