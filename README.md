@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“If I wasn't even famous or had any success, I would still wake up and put tons of make-up on, and put on a cool outfit. That's always been who I've been my whole life, so that's never gonna change. I love fashion. I love getting dressed up. I love Halloween, too.”* — Gwen Stefani
+*“It takes someone with a vision of the possibilities to attain new levels of experience. Someone with the courage to live his dreams.”* — Les Brown
