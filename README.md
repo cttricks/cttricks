@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It takes someone with a vision of the possibilities to attain new levels of experience. Someone with the courage to live his dreams.”* — Les Brown
+*“I was born at the age of twelve on a Metro-Goldwyn-Mayer lot.”* — Edward Koch
