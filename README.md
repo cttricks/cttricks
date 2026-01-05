@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I was born at the age of twelve on a Metro-Goldwyn-Mayer lot.”* — Edward Koch
+*“I'm getting a lot of stick because my character in 'Young Dracula' wanted to be vampire, so now that I am a vampire, everyone's like, 'You finally did it!' But it's cool and I loved doing 'Young Dracula.' That show's finished and I don't know why it ended, so it was brilliant to go into 'Being Human,' which is like the adult version of it.”* — Craig Roberts
