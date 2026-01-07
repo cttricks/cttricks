@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Jet was very busy. I've been inspired by a lot of his movies.”* — Jason Statham
+*“I was an intelligence officer, not a policy-maker.”* — Cofer Black
