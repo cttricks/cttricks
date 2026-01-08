@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I was an intelligence officer, not a policy-maker.”* — Cofer Black
+*“Are you bored with life? Then throw yourself into some work you believe in with all your heart, live for it, die for it, and you will find happiness that you had thought could never be yours.”* — Dale Carnegie
