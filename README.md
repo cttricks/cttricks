@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Are you bored with life? Then throw yourself into some work you believe in with all your heart, live for it, die for it, and you will find happiness that you had thought could never be yours.”* — Dale Carnegie
+*“For wide swaths of training and education there are valuable spillovers which mean that the private sector needs support from the government. That is why I have been so determined to protect and grow apprenticeships and put higher education on a sustainable footing.”* — Vince Cable
