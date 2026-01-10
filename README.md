@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“For wide swaths of training and education there are valuable spillovers which mean that the private sector needs support from the government. That is why I have been so determined to protect and grow apprenticeships and put higher education on a sustainable footing.”* — Vince Cable
+*“My parents came from a poor background and worked their way up because of education. They saw it as a way to succeed. So they cared about me getting straight A grades when I was growing up.”* — Jennifer Garner
