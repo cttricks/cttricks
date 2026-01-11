@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“My parents came from a poor background and worked their way up because of education. They saw it as a way to succeed. So they cared about me getting straight A grades when I was growing up.”* — Jennifer Garner
+*“Longhorns are unique - each and every one of them is a different color with a different design.”* — Janine Turner
