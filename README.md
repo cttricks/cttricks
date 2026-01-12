@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Longhorns are unique - each and every one of them is a different color with a different design.”* — Janine Turner
+*“I was a mixture of being incredibly old for my age and incredibly backwards. I was born quite old, but then I stopped growing. I lived with my mum and dad till I was 30.”* — Helena Bonham Carter
