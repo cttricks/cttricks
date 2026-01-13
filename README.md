@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I was a mixture of being incredibly old for my age and incredibly backwards. I was born quite old, but then I stopped growing. I lived with my mum and dad till I was 30.”* — Helena Bonham Carter
+*“I'm not an example for how people should live their lives. Never in my life would I ever set out to be an example for people on how to live their lives. If you need an example for how to live, then you just shouldn't have been born. Straight up.”* — Lil Wayne
