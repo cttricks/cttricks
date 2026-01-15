@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The best scary movies have great humor in them and a great story.”* — Stephen Sommers
+*“The progress of freedom depends more upon the maintenance of peace, the spread of commerce, and the diffusion of education, than upon the labors of cabinets and foreign offices.”* — Richard Cobden
