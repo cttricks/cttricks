@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The progress of freedom depends more upon the maintenance of peace, the spread of commerce, and the diffusion of education, than upon the labors of cabinets and foreign offices.”* — Richard Cobden
+*“To not be modest about it, you'll find that with only a couple of exceptions, most of the musicians that I've worked with have done their best work by far with me.”* — David Bowie
