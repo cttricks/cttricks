@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“To not be modest about it, you'll find that with only a couple of exceptions, most of the musicians that I've worked with have done their best work by far with me.”* — David Bowie
+*“Most works of art, like most wines, ought to be consumed in the district of their fabrication.”* — Simone Weil
