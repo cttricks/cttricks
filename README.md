@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Most works of art, like most wines, ought to be consumed in the district of their fabrication.”* — Simone Weil
+*“Clear thinking requires courage rather than intelligence.”* — Thomas Szasz
