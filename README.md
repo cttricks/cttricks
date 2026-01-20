@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Every summer my husband and I pack our suitcases, load our kids into the car, and drive from tense, crowded New York City to my family's cottage in Maine. It's on an island, with stretches of sea and sandy beaches, rocky coasts, and pine trees. We barbecue, swim, lie around, and try to do nothing.”* — Hope Davis
+*“It takes someone with a vision of the possibilities to attain new levels of experience. Someone with the courage to live his dreams.”* — Les Brown
