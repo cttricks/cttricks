@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It takes someone with a vision of the possibilities to attain new levels of experience. Someone with the courage to live his dreams.”* — Les Brown
+*“In a school where everyone is famous or rich or whatever, you have a culture, 'What does your dad do?' 'What does your mom do?'”* — Cynthia Nixon
