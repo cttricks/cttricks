@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“In a school where everyone is famous or rich or whatever, you have a culture, 'What does your dad do?' 'What does your mom do?'”* — Cynthia Nixon
+*“Sometimes the beauty is easy. Sometimes you don't have to try at all. Sometimes you can hear the wind blow in a handshake. Sometimes there's poetry written right on the bathroom wall.”* — Ani DiFranco
