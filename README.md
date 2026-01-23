@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Sometimes the beauty is easy. Sometimes you don't have to try at all. Sometimes you can hear the wind blow in a handshake. Sometimes there's poetry written right on the bathroom wall.”* — Ani DiFranco
+*“We believe that God is big enough to give every nationality their own religion, as he's given them their own taste in food, in plants, in furniture, and housing. I think that each religion has their basic Christ-ish way to get to the Everlasting God.”* — Duane Chapman
