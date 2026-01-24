@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“We believe that God is big enough to give every nationality their own religion, as he's given them their own taste in food, in plants, in furniture, and housing. I think that each religion has their basic Christ-ish way to get to the Everlasting God.”* — Duane Chapman
+*“Affirmation without discipline is the beginning of delusion.”* — Jim Rohn
