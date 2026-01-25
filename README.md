@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Affirmation without discipline is the beginning of delusion.”* — Jim Rohn
+*“Most children - I know I did when I was a kid - fantasize another set of parents. Or fantasize no parents. They don't tell their real parents about that - you don't want to tell Mom and Dad.”* — Maurice Sendak
