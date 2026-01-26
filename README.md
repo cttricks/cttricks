@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Most children - I know I did when I was a kid - fantasize another set of parents. Or fantasize no parents. They don't tell their real parents about that - you don't want to tell Mom and Dad.”* — Maurice Sendak
+*“Happiness lies neither in vice nor in virtue but in the manner we appreciate the one and the other, and the choice we make pursuant to our individual organization.”* — Marquis de Sade
