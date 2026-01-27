@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Happiness lies neither in vice nor in virtue but in the manner we appreciate the one and the other, and the choice we make pursuant to our individual organization.”* — Marquis de Sade
+*“And in that I cannot send unto you all my businesses in writing, I despatch these present bearers fully informed in all things, to whom it may please you to give faith and credence in what they shall say unto you by word of mouth.”* — Owen Glendower
