@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The best things in life are silly.”* — Scott Adams
+*“There are two great forces, God's force of good and the devil's force of evil, and I believe Satan is alive and he is working, and he is working harder than ever, and we have many mysteries that we don't understand.”* — Billy Graham
