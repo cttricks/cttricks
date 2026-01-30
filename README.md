@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“There are two great forces, God's force of good and the devil's force of evil, and I believe Satan is alive and he is working, and he is working harder than ever, and we have many mysteries that we don't understand.”* — Billy Graham
+*“My daughters, your daughters, our daughters deserve safety, protection, and the freedom to make their own choices about their personal lives and their physical selves.”* — Carre Otis
