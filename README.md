@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“My daughters, your daughters, our daughters deserve safety, protection, and the freedom to make their own choices about their personal lives and their physical selves.”* — Carre Otis
+*“Age is only a number, a cipher for the records. A man can't retire his experience. He must use it. Experience achieves more with less energy and time.”* — Bernard Baruch
