@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Age is only a number, a cipher for the records. A man can't retire his experience. He must use it. Experience achieves more with less energy and time.”* — Bernard Baruch
+*“Our lives sometimes depend on computers performing as predicted.”* — Philip Emeagwali
