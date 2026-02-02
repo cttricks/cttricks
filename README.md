@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Our lives sometimes depend on computers performing as predicted.”* — Philip Emeagwali
+*“Where I come from, it was a heresy to say you wanted to be in movies, leave alone American movies.”* — Daniel Day-Lewis
