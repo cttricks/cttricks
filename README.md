@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Where I come from, it was a heresy to say you wanted to be in movies, leave alone American movies.”* — Daniel Day-Lewis
+*“In our system leadership is by consent, not command. To lead a President must persuade. Personal contacts and experiences help shape his thinking. They can be critical to his persuasiveness and thus to his leadership.”* — Donald Rumsfeld
