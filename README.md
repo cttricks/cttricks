@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“In our system leadership is by consent, not command. To lead a President must persuade. Personal contacts and experiences help shape his thinking. They can be critical to his persuasiveness and thus to his leadership.”* — Donald Rumsfeld
+*“Most 'reality' shows aren't reality at all. They're game shows with no prize. Like 'Rock of Love.' His aren't genuine feelings. Then again, Bob Barker didn't really care whether or not you won the toaster. Sorry to shatter everyone's dreams.”* — Hal Sparks
