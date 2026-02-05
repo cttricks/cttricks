@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Most 'reality' shows aren't reality at all. They're game shows with no prize. Like 'Rock of Love.' His aren't genuine feelings. Then again, Bob Barker didn't really care whether or not you won the toaster. Sorry to shatter everyone's dreams.”* — Hal Sparks
+*“I want any excuse to come home. My dad is not a spring chicken any more. If anyone says, 'Go buy a postage stamp in London,' I'll go and do it.”* — Emily Mortimer
