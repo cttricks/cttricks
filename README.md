@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I want any excuse to come home. My dad is not a spring chicken any more. If anyone says, 'Go buy a postage stamp in London,' I'll go and do it.”* — Emily Mortimer
+*“A film's success or failure is strictly on the director's shoulders.”* — Robin Tunney
