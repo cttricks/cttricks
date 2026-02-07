@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“A film's success or failure is strictly on the director's shoulders.”* — Robin Tunney
+*“Extremists think 'communication' means agreeing with them.”* — Leo Rosten
