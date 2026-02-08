@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Extremists think 'communication' means agreeing with them.”* — Leo Rosten
+*“A very quiet and tasteful way to be famous is to have a famous relative. Then you can not only be nothing, you can do nothing too.”* — P. J. O'Rourke
