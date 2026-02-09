@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“A very quiet and tasteful way to be famous is to have a famous relative. Then you can not only be nothing, you can do nothing too.”* — P. J. O'Rourke
+*“I don't believe in morality in architecture.”* — Michael Graves
