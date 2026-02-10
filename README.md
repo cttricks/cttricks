@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I don't believe in morality in architecture.”* — Michael Graves
+*“It is utterly false and cruelly arbitrary to put all the play and learning into childhood, all the work into middle age, and all the regrets into old age.”* — Margaret Mead
