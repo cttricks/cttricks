@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It is utterly false and cruelly arbitrary to put all the play and learning into childhood, all the work into middle age, and all the regrets into old age.”* — Margaret Mead
+*“Men fear death as children fear to go in the dark and as that natural fear in children is increased by tales, so is the other.”* — Francis Bacon
