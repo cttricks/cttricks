@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Great artists are people who find the way to be themselves in their art. Any sort of pretension induces mediocrity in art and life alike.”* — Margot Fonteyn
+*“Death gives meaning to our lives. It gives importance and value to time. Time would become meaningless if there were too much of it.”* — Ray Kurzweil
