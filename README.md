@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Death gives meaning to our lives. It gives importance and value to time. Time would become meaningless if there were too much of it.”* — Ray Kurzweil
+*“I am the greatest, I said that even before I knew I was.”* — Muhammad Ali
