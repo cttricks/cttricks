@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I am the greatest, I said that even before I knew I was.”* — Muhammad Ali
+*“Planning is bringing the future into the present so that you can do something about it now.”* — Alan Lakein
