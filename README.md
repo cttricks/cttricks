@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Planning is bringing the future into the present so that you can do something about it now.”* — Alan Lakein
+*“When I did 'E.T.,' it sort of solidified the only family I know are these film crews. These gypsies. These filmmakers. That was the solidification and the clicking revelations of 'This is what I want to do with my life and this is where I'm going to survive.'”* — Drew Barrymore
