@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“When I did 'E.T.,' it sort of solidified the only family I know are these film crews. These gypsies. These filmmakers. That was the solidification and the clicking revelations of 'This is what I want to do with my life and this is where I'm going to survive.'”* — Drew Barrymore
+*“I never think of the future. I never imagine what comes next.”* — Jessica Lange
