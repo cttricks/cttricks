@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I never think of the future. I never imagine what comes next.”* — Jessica Lange
+*“Learning about issues such as sustainability and locavorism are things that you need to have as part of you as a chef because it will make you cook more delicious food.”* — Rene Redzepi
