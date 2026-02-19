@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Learning about issues such as sustainability and locavorism are things that you need to have as part of you as a chef because it will make you cook more delicious food.”* — Rene Redzepi
+*“Quarrels often arise in marriages when the bridal gifts are excessive.”* — Antisthenes
