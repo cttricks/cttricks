@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Quarrels often arise in marriages when the bridal gifts are excessive.”* — Antisthenes
+*“Love is the word used to label the sexual excitement of the young, the habituation of the middle-aged, and the mutual dependence of the old.”* — John Ciardi
