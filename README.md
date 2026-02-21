@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Love is the word used to label the sexual excitement of the young, the habituation of the middle-aged, and the mutual dependence of the old.”* — John Ciardi
+*“I can take it. The tougher it gets, the cooler I get.”* — Richard M. Nixon
