@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I can take it. The tougher it gets, the cooler I get.”* — Richard M. Nixon
+*“If you love someone, set them free. If they come back they're yours if they don't they never were.”* — Richard Bach
