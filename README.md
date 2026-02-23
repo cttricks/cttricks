@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“If you love someone, set them free. If they come back they're yours if they don't they never were.”* — Richard Bach
+*“Technology is so much fun but we can drown in our technology. The fog of information can drive out knowledge.”* — Daniel J. Boorstin
