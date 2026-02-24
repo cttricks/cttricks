@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Technology is so much fun but we can drown in our technology. The fog of information can drive out knowledge.”* — Daniel J. Boorstin
+*“Fear not and the God of mercies grant a full gale and a fair entry into His kingdom, which may carry sweetly and swiftly over the bar, that you find not the rub of death.”* — Donald Cargill
