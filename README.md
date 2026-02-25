@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Fear not and the God of mercies grant a full gale and a fair entry into His kingdom, which may carry sweetly and swiftly over the bar, that you find not the rub of death.”* — Donald Cargill
+*“CNN found that Hillary Clinton is the most admired woman in America. Women admire her because she's strong and successful. Men admire her because she allows her husband to cheat and get away with it.”* — Jay Leno
