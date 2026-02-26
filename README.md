@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“CNN found that Hillary Clinton is the most admired woman in America. Women admire her because she's strong and successful. Men admire her because she allows her husband to cheat and get away with it.”* — Jay Leno
+*“There's the issue of hunger, and there's an issue of if you're going to cut out food programs. We should be focusing on healthy food. Right now, fruits and vegetables are very expensive. So what can we do on the policy side to bring the cost of fruits and vegetables down?”* — Tom Colicchio
