@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“There's the issue of hunger, and there's an issue of if you're going to cut out food programs. We should be focusing on healthy food. Right now, fruits and vegetables are very expensive. So what can we do on the policy side to bring the cost of fruits and vegetables down?”* — Tom Colicchio
+*“Old age is not a matter for sorrow. It is matter for thanks if we have left our work done behind us.”* — Thomas Carlyle
