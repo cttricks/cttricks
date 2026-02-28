@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Old age is not a matter for sorrow. It is matter for thanks if we have left our work done behind us.”* — Thomas Carlyle
+*“I never left France for Hollywood nor stashed my money in Switzerland.”* — Brigitte Bardot
