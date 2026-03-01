@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I never left France for Hollywood nor stashed my money in Switzerland.”* — Brigitte Bardot
+*“After the final no there comes a yes and on that yes the future of the world hangs.”* — Wallace Stevens
