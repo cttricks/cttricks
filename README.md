@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“After the final no there comes a yes and on that yes the future of the world hangs.”* — Wallace Stevens
+*“I'd like to have the first restaurant that can deliver incredible quality food to your table at your house at any time-right where you live.”* — Paul Prudhomme
