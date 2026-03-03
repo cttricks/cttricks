@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I'd like to have the first restaurant that can deliver incredible quality food to your table at your house at any time-right where you live.”* — Paul Prudhomme
+*“The death penalty is being applied in the United States as a fatal lottery.”* — Bianca Jagger
