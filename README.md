@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“You don't learn to walk by following rules. You learn by doing, and by falling over.”* — Richard Branson
+*“Happiness is secured through virtue it is a good attained by man's own will.”* — Thomas Aquinas
