@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Happiness is secured through virtue it is a good attained by man's own will.”* — Thomas Aquinas
+*“The banking collapse was caused, more than anything, by bad government policy and the total failure of bad regulation, rather than by greed.”* — Nigel Farage
