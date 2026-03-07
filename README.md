@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The banking collapse was caused, more than anything, by bad government policy and the total failure of bad regulation, rather than by greed.”* — Nigel Farage
+*“All the characters in my films are fighting these problems, needing freedom, trying to find a way to cut themselves loose, but failing to rid themselves of conscience, a sense of sin, the whole bag of tricks.”* — Michelangelo Antonioni
