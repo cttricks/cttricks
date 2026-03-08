@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“All the characters in my films are fighting these problems, needing freedom, trying to find a way to cut themselves loose, but failing to rid themselves of conscience, a sense of sin, the whole bag of tricks.”* — Michelangelo Antonioni
+*“I had some vague memory of visiting Canberra as a lad, when we came up with my father by car. But when I made the long train journey from Sydney to Canberra and arrived at the little stop, I did wonder slightly whether this really was the national capital.”* — John Henry Carver
