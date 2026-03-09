@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I had some vague memory of visiting Canberra as a lad, when we came up with my father by car. But when I made the long train journey from Sydney to Canberra and arrived at the little stop, I did wonder slightly whether this really was the national capital.”* — John Henry Carver
+*“It's true that General Musharraf opposes my return, seeing me as a symbol of democracy in the country. He is comfortable with dictatorship. I hope better sense prevails.”* — Benazir Bhutto
