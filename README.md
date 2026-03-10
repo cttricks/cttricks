@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It's true that General Musharraf opposes my return, seeing me as a symbol of democracy in the country. He is comfortable with dictatorship. I hope better sense prevails.”* — Benazir Bhutto
+*“That's a funny thing, fame. People definitely do treat you differently. When you begin to be successful, people say, 'Don't go changing.' Well, that's easy to say, but the fact is, you don't change at all - other people do.”* — Jonathan Rhys Meyers
