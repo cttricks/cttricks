@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“That's a funny thing, fame. People definitely do treat you differently. When you begin to be successful, people say, 'Don't go changing.' Well, that's easy to say, but the fact is, you don't change at all - other people do.”* — Jonathan Rhys Meyers
+*“I don't know how it is for women or for other guys, but when I was young and in my 20s, I had a fear of marriage.”* — Jeff Bridges
