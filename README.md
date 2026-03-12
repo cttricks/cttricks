@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I don't know how it is for women or for other guys, but when I was young and in my 20s, I had a fear of marriage.”* — Jeff Bridges
+*“Here's the funny thing about the response I've been aware of to my dating famous people: It's been very negative. I'm either not good-looking enough, not a good enough actor or not successful enough for these people.”* — Dax Shepard
