@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Here's the funny thing about the response I've been aware of to my dating famous people: It's been very negative. I'm either not good-looking enough, not a good enough actor or not successful enough for these people.”* — Dax Shepard
+*“Give me liberty or give me death.”* — Patrick Henry
