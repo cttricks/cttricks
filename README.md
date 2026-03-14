@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Give me liberty or give me death.”* — Patrick Henry
+*“Love and work are the cornerstones of our humanness.”* — Sigmund Freud
