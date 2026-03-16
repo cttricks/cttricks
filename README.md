@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It's not just the kid who's spent every penny from his job to upgrade his car to tell the world he cares about sports cars, it's also the person driving around in a fuel-conscious hybrid electric car, because it's more a message to the world than an effective means of saving fuel, to be quite honest.”* — Richard Hammond
+*“I opposed the Defense of Marriage Act in 1996. It should be repealed and I will vote for its repeal on the Senate floor. I will also oppose any proposal to amend the U.S. Constitution to ban gays and lesbians from marrying.”* — Barack Obama
