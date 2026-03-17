@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I opposed the Defense of Marriage Act in 1996. It should be repealed and I will vote for its repeal on the Senate floor. I will also oppose any proposal to amend the U.S. Constitution to ban gays and lesbians from marrying.”* — Barack Obama
+*“The great thing in the world is not so much where we stand, as in what direction we are moving.”* — Oliver Wendell Holmes
