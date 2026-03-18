@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The great thing in the world is not so much where we stand, as in what direction we are moving.”* — Oliver Wendell Holmes
+*“The funny thing is, the girls that I'm always up against for roles are pretty nice and cool, like Emma Watson. She's awesome.”* — Amanda Seyfried
