@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The funny thing is, the girls that I'm always up against for roles are pretty nice and cool, like Emma Watson. She's awesome.”* — Amanda Seyfried
+*“I report to you that our country is challenged at home and abroad: that it is our will that is being tried and not our strength our sense of purpose and not our ability to achieve a better America.”* — Lyndon B. Johnson
