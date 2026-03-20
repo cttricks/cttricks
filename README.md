@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I report to you that our country is challenged at home and abroad: that it is our will that is being tried and not our strength our sense of purpose and not our ability to achieve a better America.”* — Lyndon B. Johnson
+*“Our theme for this year's festivities, Dreams and Challenges of Asian Pacific Americans, speaks to the many generations of Asian Pacific Americans who worked hard to overcome economic hardship, racism and other barriers in their pursuit of the American dream.”* — Lucille Roybal-Allard
