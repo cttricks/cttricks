@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Our theme for this year's festivities, Dreams and Challenges of Asian Pacific Americans, speaks to the many generations of Asian Pacific Americans who worked hard to overcome economic hardship, racism and other barriers in their pursuit of the American dream.”* — Lucille Roybal-Allard
+*“Let us never know what old age is. Let us know the happiness time brings, not count the years.”* — Ausonius
