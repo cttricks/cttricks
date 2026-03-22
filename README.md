@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Let us never know what old age is. Let us know the happiness time brings, not count the years.”* — Ausonius
+*“Don't give up. Don't lose hope. Don't sell out.”* — Christopher Reeve
