@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Don't give up. Don't lose hope. Don't sell out.”* — Christopher Reeve
+*“I have a very close relationship with my mom, and I'm able to talk to her about anything.”* — Jessica Szohr
