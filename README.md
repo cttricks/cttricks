@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I have a very close relationship with my mom, and I'm able to talk to her about anything.”* — Jessica Szohr
+*“Beauty is power; a smile is its sword. ”* — Reade, Charles
