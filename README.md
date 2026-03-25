@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Beauty is power; a smile is its sword. ”* — Reade, Charles
+*“I bought a house for my mom, I bought a house for my dad, I bought a house for my sister.”* — Trey Parker
