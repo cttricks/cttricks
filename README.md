@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I bought a house for my mom, I bought a house for my dad, I bought a house for my sister.”* — Trey Parker
+*“Neither the life of an individual nor the history of a society can be understood without understanding both.”* — C. Wright Mills
