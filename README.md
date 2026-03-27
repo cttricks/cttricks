@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Neither the life of an individual nor the history of a society can be understood without understanding both.”* — C. Wright Mills
+*“Courage consists not in blindly overlooking danger, but in seeing it, and conquering it.”* — Jean Paul
