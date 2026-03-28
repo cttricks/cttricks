@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Courage consists not in blindly overlooking danger, but in seeing it, and conquering it.”* — Jean Paul
+*“Americans are the only people in the world known to me whose status anxiety prompts them to advertise their college and university affiliations in the rear window of their automobiles.”* — Paul Fussell
