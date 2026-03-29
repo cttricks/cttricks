@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Americans are the only people in the world known to me whose status anxiety prompts them to advertise their college and university affiliations in the rear window of their automobiles.”* — Paul Fussell
+*“The most pitiful among men is he who turns his dreams into silver and gold.”* — Khalil Gibran
