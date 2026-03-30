@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The most pitiful among men is he who turns his dreams into silver and gold.”* — Khalil Gibran
+*“We're in an emergency situation. The United States has become an absolutely terrifying country, and I would hope that I could participate in some way in stopping the horror and the brutality.”* — Wallace Shawn
