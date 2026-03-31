@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“We're in an emergency situation. The United States has become an absolutely terrifying country, and I would hope that I could participate in some way in stopping the horror and the brutality.”* — Wallace Shawn
+*“It's part of a writer's profession, as it's part of a spy's profession, to prey on the community to which he's attached, to take away information - often in secret - and to translate that into intelligence for his masters, whether it's his readership or his spy masters. And I think that both professions are perhaps rather lonely.”* — John le Carre
