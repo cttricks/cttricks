@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It's part of a writer's profession, as it's part of a spy's profession, to prey on the community to which he's attached, to take away information - often in secret - and to translate that into intelligence for his masters, whether it's his readership or his spy masters. And I think that both professions are perhaps rather lonely.”* — John le Carre
+*“I was in a really crummy pop-punk band. I think we did a whole bunch of Blink-182 covers, and we were on the fringe of losers and jocks. So we invited all the cool kids to come watch us play in our bass player's brother's bedroom. And it was terrible, but everyone thought we were so cool.”* — Nate Ruess
