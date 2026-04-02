@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I was in a really crummy pop-punk band. I think we did a whole bunch of Blink-182 covers, and we were on the fringe of losers and jocks. So we invited all the cool kids to come watch us play in our bass player's brother's bedroom. And it was terrible, but everyone thought we were so cool.”* — Nate Ruess
+*“I would like a food/lifestyle show. We're not sure what that is yet. I want to be able to share what I do and how I raise my family. I feel like I have a story to tell. I enjoy talking and listening, sharing ideas and sharing advice.”* — Cat Cora
