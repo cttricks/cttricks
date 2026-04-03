@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I would like a food/lifestyle show. We're not sure what that is yet. I want to be able to share what I do and how I raise my family. I feel like I have a story to tell. I enjoy talking and listening, sharing ideas and sharing advice.”* — Cat Cora
+*“To look and feel my best, I watch my calories and exercise.”* — Kim Kardashian
