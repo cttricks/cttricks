@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“To look and feel my best, I watch my calories and exercise.”* — Kim Kardashian
+*“Patience is the art of hoping.”* — Luc de Clapiers
