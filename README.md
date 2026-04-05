@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Patience is the art of hoping.”* — Luc de Clapiers
+*“A strange thing is memory, and hope one looks backward, and the other forward one is of today, the other of tomorrow. Memory is history recorded in our brain, memory is a painter, it paints pictures of the past and of the day.”* — Grandma Moses
