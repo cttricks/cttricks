@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“A strange thing is memory, and hope one looks backward, and the other forward one is of today, the other of tomorrow. Memory is history recorded in our brain, memory is a painter, it paints pictures of the past and of the day.”* — Grandma Moses
+*“And when an architect has designed a house with large windows, which is a necessity today in order to pull the daylight into these very deep houses, then curtains come to play a big role in architecture.”* — Arne Jacobsen
