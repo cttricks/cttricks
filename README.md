@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“And when an architect has designed a house with large windows, which is a necessity today in order to pull the daylight into these very deep houses, then curtains come to play a big role in architecture.”* — Arne Jacobsen
+*“Not one has shown an iota of fear of death. They want to end this agony.”* — Jack Kevorkian
