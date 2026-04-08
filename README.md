@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Not one has shown an iota of fear of death. They want to end this agony.”* — Jack Kevorkian
+*“Unlike a drop of water which loses its identity when it joins the ocean, man does not lose his being in the society in which he lives. Man's life is independent. He is born not for the development of the society alone, but for the development of his self.”* — B. R. Ambedkar
