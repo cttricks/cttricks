@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I didn't go to film school so my learning was done out in public and showed up on the screen.”* — Jonathan Demme
+*“There is still a future with music, because people want music.”* — Maynard James Keenan
