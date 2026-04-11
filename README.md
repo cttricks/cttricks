@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“There is still a future with music, because people want music.”* — Maynard James Keenan
+*“Bipartisanship isn't an option anymore it is a requirement. The American people have divided responsibility for leadership right down the middle.”* — Tom Daschle
