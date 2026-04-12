@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Bipartisanship isn't an option anymore it is a requirement. The American people have divided responsibility for leadership right down the middle.”* — Tom Daschle
+*“I want to deploy the leadership to meet the challenges that face us and to restore America's greatness.”* — Paul Tsongas
