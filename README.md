@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I think I'm a combination of very simple pleasures and the fact I've read a lot of books. I don't think it's a binary opposition across the board in humans and I think I'm an example that it's not. I'm hosting gay marriage rallies and I have tons of guns at home. There's a lot of middle ground in the world and I'm one of those people.”* — Dax Shepard
+*“Experience is what you get while looking for something else.”* — Federico Fellini
