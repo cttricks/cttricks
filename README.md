@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Experience is what you get while looking for something else.”* — Federico Fellini
+*“Pubs make you as drunk as they can as soon as they can, and turn nasty when they succeed.”* — MacInnes, Colin
