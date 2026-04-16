@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Pubs make you as drunk as they can as soon as they can, and turn nasty when they succeed.”* — MacInnes, Colin
+*“I don't want to look at other people my age in leather. Why would I put it on?”* — George Michael
