@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I don't want to look at other people my age in leather. Why would I put it on?”* — George Michael
+*“Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances.”* — Thomas Jefferson
