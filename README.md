@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Leadership is something I was born with.”* — Carmelo Anthony
+*“My second play, The Birthday Party, I wrote in 1958 - or 1957. It was totally destroyed by the critics of the day, who called it an absolute load of rubbish.”* — Harold Pinter
