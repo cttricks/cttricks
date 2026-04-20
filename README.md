@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“My second play, The Birthday Party, I wrote in 1958 - or 1957. It was totally destroyed by the critics of the day, who called it an absolute load of rubbish.”* — Harold Pinter
+*“The really frightening thing about middle age is the knowledge that you'll grow out of it.”* — Doris Day
