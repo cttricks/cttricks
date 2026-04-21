@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The really frightening thing about middle age is the knowledge that you'll grow out of it.”* — Doris Day
+*“I maintain the rather old-fashioned view that this is my work and it's in the public arena, but that doesn't entitle everyone to know what happened at home before coming here.”* — Francesca Annis
