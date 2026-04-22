@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I maintain the rather old-fashioned view that this is my work and it's in the public arena, but that doesn't entitle everyone to know what happened at home before coming here.”* — Francesca Annis
+*“Affairs of state tend to drive most presidents toward the center on both foreign and domestic policy, no matter where on the political spectrum they begin, and especially so in the areas of intelligence and law enforcement.”* — David K. Shipler
