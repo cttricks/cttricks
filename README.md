@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Affairs of state tend to drive most presidents toward the center on both foreign and domestic policy, no matter where on the political spectrum they begin, and especially so in the areas of intelligence and law enforcement.”* — David K. Shipler
+*“The most meaningful engine of change, powerful enough to confront corporate power, may be not so much environmental quality, as the economic development and growth associated with the effort to improve it.”* — Barry Commoner
