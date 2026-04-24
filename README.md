@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The most meaningful engine of change, powerful enough to confront corporate power, may be not so much environmental quality, as the economic development and growth associated with the effort to improve it.”* — Barry Commoner
+*“I could wake up six in the morning, go downstairs and record. I learned how to use ProTools and everything. Whenever I felt it, I could record.”* — Beanie Sigel
