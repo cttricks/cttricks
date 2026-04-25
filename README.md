@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I could wake up six in the morning, go downstairs and record. I learned how to use ProTools and everything. Whenever I felt it, I could record.”* — Beanie Sigel
+*“No true believer could be intolerant or a persecutor. If I were a magistrate and the law carried the death penalty against atheists, I would begin by sending to the stake whoever denounced another.”* — Jean-Jacques Rousseau
