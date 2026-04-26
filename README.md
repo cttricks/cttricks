@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“No true believer could be intolerant or a persecutor. If I were a magistrate and the law carried the death penalty against atheists, I would begin by sending to the stake whoever denounced another.”* — Jean-Jacques Rousseau
+*“Also, I knew that the impact of Motorcycle Diaries was going to be so resonant for all of us who went through the experience of making it that I didn't want to do anything that could reflect it.”* — Walter Salles
