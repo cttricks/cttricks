@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Also, I knew that the impact of Motorcycle Diaries was going to be so resonant for all of us who went through the experience of making it that I didn't want to do anything that could reflect it.”* — Walter Salles
+*“While we are focusing on fear, worry, or hate, it is not possible for us to be experiencing happiness, enthusiasm or love.”* — Bo Bennett
