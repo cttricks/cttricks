@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“While we are focusing on fear, worry, or hate, it is not possible for us to be experiencing happiness, enthusiasm or love.”* — Bo Bennett
+*“An early-morning walk is a blessing for the whole day.”* — Henry David Thoreau
