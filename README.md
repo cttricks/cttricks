@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“An early-morning walk is a blessing for the whole day.”* — Henry David Thoreau
+*“His claim to his home is deep, but there are too many ghosts. He must absorb without being absorbed.”* — Willie Morris
