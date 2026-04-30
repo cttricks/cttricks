@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“His claim to his home is deep, but there are too many ghosts. He must absorb without being absorbed.”* — Willie Morris
+*“I believe the world is one big family, and we need to help each other.”* — Jet Li
