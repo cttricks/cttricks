@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I believe the world is one big family, and we need to help each other.”* — Jet Li
+*“Money is always there but the pockets change it is not in the same pockets after a change, and that is all there is to say about money.”* — Gertrude Stein
