@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Money is always there but the pockets change it is not in the same pockets after a change, and that is all there is to say about money.”* — Gertrude Stein
+*“I'm not afraid of storms, for I'm learning how to sail my ship.”* — Louisa May Alcott
