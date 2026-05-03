@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I'm not afraid of storms, for I'm learning how to sail my ship.”* — Louisa May Alcott
+*“I haven't been faithful to my wife. Our marriage has been tainted with my infidelities. I was irresponsible.”* — David Boreanaz
