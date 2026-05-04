@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I haven't been faithful to my wife. Our marriage has been tainted with my infidelities. I was irresponsible.”* — David Boreanaz
+*“Change is the law of life. And those who look only to the past or present are certain to miss the future.”* — John F. Kennedy
