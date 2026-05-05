@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Change is the law of life. And those who look only to the past or present are certain to miss the future.”* — John F. Kennedy
+*“In passing, we should note this curious mark of our own age: the only absolute allowed is the absolute insistence that there is no absolute.”* — Francis Schaeffer
