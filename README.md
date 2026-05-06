@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“In passing, we should note this curious mark of our own age: the only absolute allowed is the absolute insistence that there is no absolute.”* — Francis Schaeffer
+*“My mum was very conscious about fashion and my dad was born into the tailoring tradition, so fashion has always been my life, although now, really, I wear the same thing - just in different weights - light and heavy cashmere in winter and cotton in summer.”* — Domenico Dolce
