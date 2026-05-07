@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“My mum was very conscious about fashion and my dad was born into the tailoring tradition, so fashion has always been my life, although now, really, I wear the same thing - just in different weights - light and heavy cashmere in winter and cotton in summer.”* — Domenico Dolce
+*“Beauty without grace is the hook without the bait.”* — Emerson, Ralph Waldo
