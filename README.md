@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Beauty without grace is the hook without the bait.”* — Emerson, Ralph Waldo
+*“The career stuff is for business people.”* — Joseph Gordon-Levitt
