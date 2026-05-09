@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The career stuff is for business people.”* — Joseph Gordon-Levitt
+*“What we know from World War I is that some of our troops had acute symptoms of exposure to chemicals, had bad health and died because of chemical exposure in World War I.”* — Christopher Shays
