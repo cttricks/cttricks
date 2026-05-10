@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“What we know from World War I is that some of our troops had acute symptoms of exposure to chemicals, had bad health and died because of chemical exposure in World War I.”* — Christopher Shays
+*“The making of friends who are real friends, is the best token we have of a man's success in life.”* — Edward Everett Hale
