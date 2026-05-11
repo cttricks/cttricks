@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The making of friends who are real friends, is the best token we have of a man's success in life.”* — Edward Everett Hale
+*“I can't say it's not painful being estranged from most of my family. I wish it could be otherwise.”* — LaToya Jackson
