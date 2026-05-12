@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I can't say it's not painful being estranged from most of my family. I wish it could be otherwise.”* — LaToya Jackson
+*“Let your Discourse with Men of Business be Short and Comprehensive.”* — George Washington
