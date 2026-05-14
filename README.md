@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I open with a clock striking, to beget an awful attention in the audience - it also marks the time, which is four o clock in the morning, and saves a description of the rising sun, and a great deal about gilding the eastern hemisphere.”* — Richard Brinsley Sheridan
+*“I can understand why some people might look at me and say, 'What's she got to be depressed about?' I get that a lot in Britain, where mental health issues seem to be a big taboo.”* — Natalie Imbruglia
