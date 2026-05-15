@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I can understand why some people might look at me and say, 'What's she got to be depressed about?' I get that a lot in Britain, where mental health issues seem to be a big taboo.”* — Natalie Imbruglia
+*“Your God is ever beside you - indeed, He is even within you.”* — Alphonsus Liguori
