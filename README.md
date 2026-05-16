@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Your God is ever beside you - indeed, He is even within you.”* — Alphonsus Liguori
+*“The more connections you and your lover make, not just between your bodies, but between your minds, your hearts, and your souls, the more you will strengthen the fabric of your relationship, and the more real moments you will experience together.”* — Barbara de Angelis
