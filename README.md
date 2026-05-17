@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The more connections you and your lover make, not just between your bodies, but between your minds, your hearts, and your souls, the more you will strengthen the fabric of your relationship, and the more real moments you will experience together.”* — Barbara de Angelis
+*“All Americans should have access to quality, affordable health care.”* — Christopher Dodd
