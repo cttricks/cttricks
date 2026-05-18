@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“All Americans should have access to quality, affordable health care.”* — Christopher Dodd
+*“My nickname for my mom was 'The Compass.'”* — Dane Cook
