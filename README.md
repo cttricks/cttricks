@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“My nickname for my mom was 'The Compass.'”* — Dane Cook
+*“We know there is no such thing as freedom without the risk of failure.”* — Rick Perry
