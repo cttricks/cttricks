@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“We know there is no such thing as freedom without the risk of failure.”* — Rick Perry
+*“Virtue is persecuted more by the wicked than it is loved by the good.”* — Buddha
