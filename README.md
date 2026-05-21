@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Virtue is persecuted more by the wicked than it is loved by the good.”* — Buddha
+*“Your experiences will be yours alone. But truth and best friendship will rarely if ever disappoint you.”* — Anne Lamott
