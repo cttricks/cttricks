@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Your experiences will be yours alone. But truth and best friendship will rarely if ever disappoint you.”* — Anne Lamott
+*“The new spirituality is that it will produce an experience in human encounters in which we become a living demonstration of the basic spiritual teaching 'We are all one.'”* — Neale Donald Walsch
