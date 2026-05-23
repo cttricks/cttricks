@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The new spirituality is that it will produce an experience in human encounters in which we become a living demonstration of the basic spiritual teaching 'We are all one.'”* — Neale Donald Walsch
+*“Family farms and small businesses are the backbone of our communities.”* — Tom Allen
