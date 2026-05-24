@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Family farms and small businesses are the backbone of our communities.”* — Tom Allen
+*“Observation more than books and experience more than persons, are the prime educators.”* — Amos Bronson Alcott
