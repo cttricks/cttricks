@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Observation more than books and experience more than persons, are the prime educators.”* — Amos Bronson Alcott
+*“All you need is the plan, the road map, and the courage to press on to your destination.”* — Earl Nightingale
