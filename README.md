@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“All you need is the plan, the road map, and the courage to press on to your destination.”* — Earl Nightingale
+*“Well, you know, the definition of second marriage is the triumph of hope over experience.”* — George Will
