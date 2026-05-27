@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Well, you know, the definition of second marriage is the triumph of hope over experience.”* — George Will
+*“Art evokes the mystery without which the world would not exist.”* — Rene Magritte
