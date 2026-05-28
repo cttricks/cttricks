@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Art evokes the mystery without which the world would not exist.”* — Rene Magritte
+*“I don't even talk about whether or not racial profiling is legal. I just don't think racial profiling is a particularly good law enforcement tool.”* — Eric Holder
