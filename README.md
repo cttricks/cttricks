@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I don't even talk about whether or not racial profiling is legal. I just don't think racial profiling is a particularly good law enforcement tool.”* — Eric Holder
+*“I've always believed that there are funny people everywhere, but they're just not comedians. In fact, some of my best comedic inspirations were not professional entertainers.”* — Steve Martin
