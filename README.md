@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I've always believed that there are funny people everywhere, but they're just not comedians. In fact, some of my best comedic inspirations were not professional entertainers.”* — Steve Martin
+*“My mom was amazing. She believed in me and we were best friends.”* — Carmen Electra
