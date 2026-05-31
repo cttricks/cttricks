@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“My mom was amazing. She believed in me and we were best friends.”* — Carmen Electra
+*“You can tell the strength of a nation by the women behind its men.”* — Benjamin Disraeli
