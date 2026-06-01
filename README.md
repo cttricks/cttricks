@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“You can tell the strength of a nation by the women behind its men.”* — Benjamin Disraeli
+*“We live because of the dreams.”* — Marat Safin
