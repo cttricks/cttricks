@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“We live because of the dreams.”* — Marat Safin
+*“Some mornings, it's just not worth chewing through the leather straps.”* — Emo Philips
