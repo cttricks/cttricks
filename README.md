@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Some mornings, it's just not worth chewing through the leather straps.”* — Emo Philips
+*“The movies and the parts I'm being offered are becoming better and better.”* — Vanessa Paradis
