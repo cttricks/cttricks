@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The movies and the parts I'm being offered are becoming better and better.”* — Vanessa Paradis
+*“So foolish is the heart of man that he ever puts his hope in the future, learning nothing from his past errors and fancying that tomorrow must be better than today.”* — Mika Waltari
