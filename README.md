@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“So foolish is the heart of man that he ever puts his hope in the future, learning nothing from his past errors and fancying that tomorrow must be better than today.”* — Mika Waltari
+*“If an Internet company steals content, they shut it down. And let me tell you, Apple France, Yahoo France or Google France, none of them have gone out of business.”* — Harvey Weinstein
