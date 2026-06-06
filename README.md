@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“If an Internet company steals content, they shut it down. And let me tell you, Apple France, Yahoo France or Google France, none of them have gone out of business.”* — Harvey Weinstein
+*“My dad and mom divorced when I was around ten, and I didn't live with him after that, though he was close by and we saw each other weekly. I wasn't really aware that he was a writer I didn't start reading his writing until I was about fifteen. It occurred to me then that my dad was kind of special he's still one of my favorite writers.”* — Andre Dubus III
