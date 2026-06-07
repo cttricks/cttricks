@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“My dad and mom divorced when I was around ten, and I didn't live with him after that, though he was close by and we saw each other weekly. I wasn't really aware that he was a writer I didn't start reading his writing until I was about fifteen. It occurred to me then that my dad was kind of special he's still one of my favorite writers.”* — Andre Dubus III
+*“Nothing drew me to the film business. I was propelled by the fear and anxiety of Vietnam. I had been drafted into the Marines. My brother was already serving in Vietnam. I bought, if you will, a stay of execution - both literally and figuratively - and went on to graduate school of business from the law school that I was attending.”* — Peter Guber
