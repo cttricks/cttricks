@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Nothing drew me to the film business. I was propelled by the fear and anxiety of Vietnam. I had been drafted into the Marines. My brother was already serving in Vietnam. I bought, if you will, a stay of execution - both literally and figuratively - and went on to graduate school of business from the law school that I was attending.”* — Peter Guber
+*“Above all, this country is our own. Nobody has to get up in the morning and worry what his neighbors think of him. Being a Jew is no problem here.”* — Golda Meir
