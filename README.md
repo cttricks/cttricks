@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Above all, this country is our own. Nobody has to get up in the morning and worry what his neighbors think of him. Being a Jew is no problem here.”* — Golda Meir
+*“Beauty itself is but the sensible image of the Infinite.”* — Bancroft, George
