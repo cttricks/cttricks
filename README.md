@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Beauty itself is but the sensible image of the Infinite.”* — Bancroft, George
+*“Perfection is immutable. But for things imperfect, change is the way to perfect them.”* — Owen Feltham
