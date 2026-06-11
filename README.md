@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Perfection is immutable. But for things imperfect, change is the way to perfect them.”* — Owen Feltham
+*“They say eyes clear with age.”* — Philip Larkin
