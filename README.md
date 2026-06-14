@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The Communist Party said that I must finish my studies because after the revolution in Germany people would be required with technical knowledge to take part in the building of the Communist Germany.”* — Klaus Fuchs
+*“The American dream is about freedom.”* — Nancy Pelosi
