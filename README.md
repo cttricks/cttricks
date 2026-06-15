@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The American dream is about freedom.”* — Nancy Pelosi
+*“For me, the peculiar qualities of faith are a logical outcome of this level of biological organization.”* — E. O. Wilson
