@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“For me, the peculiar qualities of faith are a logical outcome of this level of biological organization.”* — E. O. Wilson
+*“Men often take their imagination for their heart and they believe they are converted as soon as they think of being converted.”* — Blaise Pascal
