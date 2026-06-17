@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Men often take their imagination for their heart and they believe they are converted as soon as they think of being converted.”* — Blaise Pascal
+*“I enjoy every minute, because there are going to be a lot of moments in your future that you're going to wish you held onto longer.”* — Joe Nichols
