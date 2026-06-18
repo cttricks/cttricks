@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I enjoy every minute, because there are going to be a lot of moments in your future that you're going to wish you held onto longer.”* — Joe Nichols
+*“Soon I realized that if beauty equalled forgiveness, I was never going to be forgiven.”* — Kevyn Aucoin
