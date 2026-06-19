@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Soon I realized that if beauty equalled forgiveness, I was never going to be forgiven.”* — Kevyn Aucoin
+*“Whether it was his ability to turn around the Massachusetts economy or turn around businesses in the private sector, Mitt Romney has demonstrated the leadership that we need in the White House to get the country on the right track.”* — Lisa Murkowski
