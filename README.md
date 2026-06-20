@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Whether it was his ability to turn around the Massachusetts economy or turn around businesses in the private sector, Mitt Romney has demonstrated the leadership that we need in the White House to get the country on the right track.”* — Lisa Murkowski
+*“War should only be declared by the authority of the people, whose toils and treasures are to support its burdens, instead of the government which is to reap its fruits.”* — James Madison
