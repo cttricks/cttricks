@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“War should only be declared by the authority of the people, whose toils and treasures are to support its burdens, instead of the government which is to reap its fruits.”* — James Madison
+*“I did commit to myself that I would not jump back into being the workaholic that I can be before I gave myself an honest opportunity to create the marriage of my dreams and to create the beginning of the family of my dreams, and that took a hot second.”* — Alanis Morissette
