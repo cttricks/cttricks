@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I did commit to myself that I would not jump back into being the workaholic that I can be before I gave myself an honest opportunity to create the marriage of my dreams and to create the beginning of the family of my dreams, and that took a hot second.”* — Alanis Morissette
+*“I will never understand people who think that the way to show their righteous opposition to sexual freedom is to write letters full of filthy words.”* — Anna Quindlen
