@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I will never understand people who think that the way to show their righteous opposition to sexual freedom is to write letters full of filthy words.”* — Anna Quindlen
+*“The more anger towards the past you carry in your heart, the less capable you are of loving in the present.”* — Barbara de Angelis
