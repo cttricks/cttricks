@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The more anger towards the past you carry in your heart, the less capable you are of loving in the present.”* — Barbara de Angelis
+*“George Harrison was also a pleasure to work with. He was one of the most famous people I've ever known, but in spite of that fame, he was such a nice and friendly guy.”* — Alvin Lee
