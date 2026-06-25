@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“George Harrison was also a pleasure to work with. He was one of the most famous people I've ever known, but in spite of that fame, he was such a nice and friendly guy.”* — Alvin Lee
+*“Actually just recently I came up with that idea, watching the movie 'Legally Blonde' and I was like, 'Cool, that's something I want to do.'”* — Lisa Leslie
