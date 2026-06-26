@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Actually just recently I came up with that idea, watching the movie 'Legally Blonde' and I was like, 'Cool, that's something I want to do.'”* — Lisa Leslie
+*“You've got certain guys that just want to be famous and then you've got the real musicians that just love playing music.”* — Zakk Wylde
