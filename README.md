@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“You've got certain guys that just want to be famous and then you've got the real musicians that just love playing music.”* — Zakk Wylde
+*“Another way of judging the value of a prophet's religious experience, therefore, would be to examine the type of manhood that he has created, and the cultural world that has sprung out of the spirit of his message.”* — Muhammad Iqbal
