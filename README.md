@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Another way of judging the value of a prophet's religious experience, therefore, would be to examine the type of manhood that he has created, and the cultural world that has sprung out of the spirit of his message.”* — Muhammad Iqbal
+*“Joe Barbera's s always complaining that he can't get humor into cartoons anymore. Just do it. You've got your money. Why do they let the networks run their lives?”* — John Kricfalusi
