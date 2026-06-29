@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Joe Barbera's s always complaining that he can't get humor into cartoons anymore. Just do it. You've got your money. Why do they let the networks run their lives?”* — John Kricfalusi
+*“I love women, but I feel like you can't trust some of them. Some of them are liars, you know? Like I was in the park and I met this girl, she was cute and she had a dog. And I went up to her, we started talking. She told me her dog's name. Then I said, 'Does he bite?' She said, 'No.' And I said, 'Oh yeah? Then how does he eat?' Liar.”* — Demetri Martin
