@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I love women, but I feel like you can't trust some of them. Some of them are liars, you know? Like I was in the park and I met this girl, she was cute and she had a dog. And I went up to her, we started talking. She told me her dog's name. Then I said, 'Does he bite?' She said, 'No.' And I said, 'Oh yeah? Then how does he eat?' Liar.”* — Demetri Martin
+*“You know, what we do know is that there is a high frequency of violence in the home of those who bully.”* — Phil McGraw
