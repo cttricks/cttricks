@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“You know, what we do know is that there is a high frequency of violence in the home of those who bully.”* — Phil McGraw
+*“Death solves all problems - no man, no problem.”* — Joseph Stalin
