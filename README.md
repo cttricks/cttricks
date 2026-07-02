@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Death solves all problems - no man, no problem.”* — Joseph Stalin
+*“It was my mom and I against the world. We lived in New York in this bohemian lifestyle where an extended group of artists and photographers were like my aunts and uncles.”* — Brooke Shields
