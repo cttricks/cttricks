@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It was my mom and I against the world. We lived in New York in this bohemian lifestyle where an extended group of artists and photographers were like my aunts and uncles.”* — Brooke Shields
+*“I don't like this idea of Method. I come from that school, but what I was taught was that it's your imagination. You do your homework, and you use your imagination.”* — Mark Ruffalo
