@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I don't like this idea of Method. I come from that school, but what I was taught was that it's your imagination. You do your homework, and you use your imagination.”* — Mark Ruffalo
+*“What is a television apparatus to man, who has only to shut his eyes to see the most inaccessible regions of the seen and the never seen, who has only to imagine in order to pierce through walls and cause all the planetary Baghdads of his dreams to rise from the dust.”* — Salvador Dali
