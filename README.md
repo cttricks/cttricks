@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“What is a television apparatus to man, who has only to shut his eyes to see the most inaccessible regions of the seen and the never seen, who has only to imagine in order to pierce through walls and cause all the planetary Baghdads of his dreams to rise from the dust.”* — Salvador Dali
+*“Research has shown that even small amounts of processed food alter the chemical balance in our brain and cause negative mood swings along with noticeable dips ill energy.”* — Marilu Henner
