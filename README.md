@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Research has shown that even small amounts of processed food alter the chemical balance in our brain and cause negative mood swings along with noticeable dips ill energy.”* — Marilu Henner
+*“It feels quite cool, in a mad way, to be someone who skulks about in the shadows.”* — Peter Baynham
