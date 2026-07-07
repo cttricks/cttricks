@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It feels quite cool, in a mad way, to be someone who skulks about in the shadows.”* — Peter Baynham
+*“I remember my first test in F1. After five laps, I came back to the pits and tried to play it cool - 'Oh yeah, I'm fine, I'm on top of this' - but I was completely lost.”* — Sebastian Vettel
