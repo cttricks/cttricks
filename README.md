@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I remember my first test in F1. After five laps, I came back to the pits and tried to play it cool - 'Oh yeah, I'm fine, I'm on top of this' - but I was completely lost.”* — Sebastian Vettel
+*“Historic changes and challenges. Breakthroughs in human knowledge and opportunity. And yet, for vast numbers across the globe, the daily realities have not altered.”* — Abdallah II
