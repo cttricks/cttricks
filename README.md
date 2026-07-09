@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Historic changes and challenges. Breakthroughs in human knowledge and opportunity. And yet, for vast numbers across the globe, the daily realities have not altered.”* — Abdallah II
+*“To most men experience is like the stern lights of a ship, which illuminate only the track it has passed.”* — Samuel Taylor Coleridge
