@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“To most men experience is like the stern lights of a ship, which illuminate only the track it has passed.”* — Samuel Taylor Coleridge
+*“This is what I wanted. They tell me that London is the best field in history. I wanted to be part of that. Because everyone will be there it will be a wonderful challenge for me. You can see the best runners, how they look, how they run. For me to beat the best is what counts.”* — Haile Gebrselassie
