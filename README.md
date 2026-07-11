@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“This is what I wanted. They tell me that London is the best field in history. I wanted to be part of that. Because everyone will be there it will be a wonderful challenge for me. You can see the best runners, how they look, how they run. For me to beat the best is what counts.”* — Haile Gebrselassie
+*“We are all different. Yet we are all God's children. We are all united behind this country and the common cause of freedom, justice, fairness, and equality. That is what unites us.”* — Barbara Boxer
