@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“We are all different. Yet we are all God's children. We are all united behind this country and the common cause of freedom, justice, fairness, and equality. That is what unites us.”* — Barbara Boxer
+*“True happiness arises, in the first place, from the enjoyment of one's self, and in the next, from the friendship and conversation of a few select companions.”* — Joseph Addison
