@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“True happiness arises, in the first place, from the enjoyment of one's self, and in the next, from the friendship and conversation of a few select companions.”* — Joseph Addison
+*“I've been thinking a lot about next year, which will be the first time in 25 years that I don't have a child at home.”* — Jessica Lange
