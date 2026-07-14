@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I've been thinking a lot about next year, which will be the first time in 25 years that I don't have a child at home.”* — Jessica Lange
+*“I was a single mom that raised two bright, beautiful, and compassionate girls.”* — Connie Stevens
