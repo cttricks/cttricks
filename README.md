@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I was a single mom that raised two bright, beautiful, and compassionate girls.”* — Connie Stevens
+*“We are not weak if we make a proper use of those means which the God of Nature has placed in our power... the battle, sir, is not to the strong alone it is to the vigilant, the active, the brave.”* — Patrick Henry
