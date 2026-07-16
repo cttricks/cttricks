@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“We are not weak if we make a proper use of those means which the God of Nature has placed in our power... the battle, sir, is not to the strong alone it is to the vigilant, the active, the brave.”* — Patrick Henry
+*“You see, some non-Catholic friends of mine have questioned the depth of my faith because of the fact that I have a good education.”* — Robert Vaughn
