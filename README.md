@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“You see, some non-Catholic friends of mine have questioned the depth of my faith because of the fact that I have a good education.”* — Robert Vaughn
+*“What I've learned is I want to enjoy my life, and food is a big part of it.”* — Gwyneth Paltrow
