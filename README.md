@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“What I've learned is I want to enjoy my life, and food is a big part of it.”* — Gwyneth Paltrow
+*“I lost my dad way too early and it was agonisingly awful. I missed him so much and I hated knowing that I could never again pick up the phone to tell him about my day.”* — Monica Seles
