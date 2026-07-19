@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I lost my dad way too early and it was agonisingly awful. I missed him so much and I hated knowing that I could never again pick up the phone to tell him about my day.”* — Monica Seles
+*“For the last five years, we have been presented with the idea that Barack Obama is superhuman. Barack Obama is unlike any of us or anyone else. And he isn't. In fact, he's much less achieved and much less accomplished than most who have gotten half as far as he has, and I think maybe what we saw was the best.”* — Rush Limbaugh
