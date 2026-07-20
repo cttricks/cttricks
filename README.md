@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“For the last five years, we have been presented with the idea that Barack Obama is superhuman. Barack Obama is unlike any of us or anyone else. And he isn't. In fact, he's much less achieved and much less accomplished than most who have gotten half as far as he has, and I think maybe what we saw was the best.”* — Rush Limbaugh
+*“There is an old saying that money can't buy happiness. If it could, I would buy myself four hits every game.”* — Pete Rose
