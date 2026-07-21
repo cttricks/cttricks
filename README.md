@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“There is an old saying that money can't buy happiness. If it could, I would buy myself four hits every game.”* — Pete Rose
+*“Kids are finding out about the potential for discovery online from other sources many of them have computers at home, for instance, or their friends have them.”* — Daniel Greenberg
