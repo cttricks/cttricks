@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“But human nature dictates that there will always be cheaters. That's inevitable. Where there's money involved and glory, there are going to be people that cheat, and there will always be ways to cheat.”* — David Millar
+*“The properties which differentiate living matter from any kind of inorganic imitation may be instinctively felt, but can hardly be formulated without expert knowledge.”* — Oliver Joseph Lodge
