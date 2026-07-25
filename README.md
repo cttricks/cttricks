@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“The properties which differentiate living matter from any kind of inorganic imitation may be instinctively felt, but can hardly be formulated without expert knowledge.”* — Oliver Joseph Lodge
+*“God used beautiful mathematics in creating the world.”* — Paul Dirac
