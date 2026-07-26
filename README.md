@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“God used beautiful mathematics in creating the world.”* — Paul Dirac
+*“It won't take 40 years for opposition to same-sex marriage to dissipate.”* — Mary Cheney
