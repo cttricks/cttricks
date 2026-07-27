@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It won't take 40 years for opposition to same-sex marriage to dissipate.”* — Mary Cheney
+*“All people desire what they believe will make them happy. If a person is not full of desire for God, we can only conclude that he is engaged with another happiness.”* — William Law
