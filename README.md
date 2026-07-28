@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“All people desire what they believe will make them happy. If a person is not full of desire for God, we can only conclude that he is engaged with another happiness.”* — William Law
+*“There is only one cure for the evils which newly acquired freedom produces, and that cure is freedom.”* — Thomas B. Macaulay
