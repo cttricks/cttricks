@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“There is only one cure for the evils which newly acquired freedom produces, and that cure is freedom.”* — Thomas B. Macaulay
+*“So, we just kind of created our own thing and that's part of the beauty of Athens: is that it's so off the map and there's no way you could ever be the East Village or an L.A. scene or a San Francisco scene, that it just became its own thing.”* — Michael Stipe
