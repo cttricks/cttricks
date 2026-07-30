@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“So, we just kind of created our own thing and that's part of the beauty of Athens: is that it's so off the map and there's no way you could ever be the East Village or an L.A. scene or a San Francisco scene, that it just became its own thing.”* — Michael Stipe
+*“Let it ever be remembered that genuine faith in Christ will ever be productive of good works for this faith worketh by love, as the apostle says, and love to God always produces obedience to his holy laws.”* — Adam Clarke
