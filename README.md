@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Let it ever be remembered that genuine faith in Christ will ever be productive of good works for this faith worketh by love, as the apostle says, and love to God always produces obedience to his holy laws.”* — Adam Clarke
+*“There are no secrets to success. It is the result of preparation, hard work, and learning from failure.”* — Colin Powell
