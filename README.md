@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“There are no secrets to success. It is the result of preparation, hard work, and learning from failure.”* — Colin Powell
+*“Some of the things you read you get an immediate reaction to so I've stopped reading things now. I do worry about my family though. Some people do try some nasty things to get at them and try and get a reaction from them.”* — Russell Crowe
