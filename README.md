@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Some of the things you read you get an immediate reaction to so I've stopped reading things now. I do worry about my family though. Some people do try some nasty things to get at them and try and get a reaction from them.”* — Russell Crowe
+*“Without wearing any mask we are conscious of, we have a special face for each friend.”* — Oliver Wendell Holmes
