@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Without wearing any mask we are conscious of, we have a special face for each friend.”* — Oliver Wendell Holmes
+*“It is a great consolation for me to remember that the Lord, to whom I had drawn near in humble and child-like faith, has suffered and died for me, and that He will look on me in love and compassion.”* — Wolfgang Amadeus Mozart
