@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It is a great consolation for me to remember that the Lord, to whom I had drawn near in humble and child-like faith, has suffered and died for me, and that He will look on me in love and compassion.”* — Wolfgang Amadeus Mozart
+*“I call on the Iranian people: it is not too late to replace the corrupt regime and return to your glorious Persian heritage, a heritage of culture and values and not of bombs and missiles... How can a nation allow a regime to instill fear, take away the people's freedom and shock the young generation that seeks its way out of the dictatorial Iran.”* — Shimon Peres
