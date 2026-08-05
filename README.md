@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“I call on the Iranian people: it is not too late to replace the corrupt regime and return to your glorious Persian heritage, a heritage of culture and values and not of bombs and missiles... How can a nation allow a regime to instill fear, take away the people's freedom and shock the young generation that seeks its way out of the dictatorial Iran.”* — Shimon Peres
+*“Women are, in my view, natural peacemakers. As givers and nurturers of life, through their focus on human relationships and their engagement with the demanding work of raising children and protecting family life, they develop a deep sense of empathy that cuts through to underlying human realities.”* — Daisaku Ikeda
