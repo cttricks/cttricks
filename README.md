@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Women are, in my view, natural peacemakers. As givers and nurturers of life, through their focus on human relationships and their engagement with the demanding work of raising children and protecting family life, they develop a deep sense of empathy that cuts through to underlying human realities.”* — Daisaku Ikeda
+*“It is not materialism that is the chief curse of the world, as pastors teach, but idealism. Men get into trouble by taking their visions and hallucinations too seriously.”* — H. L. Mencken
