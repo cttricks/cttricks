@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“It is not materialism that is the chief curse of the world, as pastors teach, but idealism. Men get into trouble by taking their visions and hallucinations too seriously.”* — H. L. Mencken
+*“We are thu music makers, the dreamers of dreams.”* — Wonka, Willy
