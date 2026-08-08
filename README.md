@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“We are thu music makers, the dreamers of dreams.”* — Wonka, Willy
+*“Inconsistencies in men are generally testimony to their immaturity.”* — Edwin Louis Cole
