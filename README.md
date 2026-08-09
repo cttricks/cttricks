@@ -76,4 +76,4 @@
 ###
 
 #### Quote Of the Day
-*“Inconsistencies in men are generally testimony to their immaturity.”* — Edwin Louis Cole
+*“It's a funny thing - when I'm crazed with work, spending time with my children relaxes me. Yet, at the end of a long weekend with them, the very thing I need to relax is a little work and time away from them!”* — Emily Giffin
