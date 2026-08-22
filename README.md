@@ -1,14 +1,15 @@
-<h3 align="left">👋 Hey there, I'm Tanish — your go-to developer and freelance powerhouse! With a flair for innovation, I proudly co-founded Dotix and Niotron, revolutionizing the digital realm one project at a time. Let's create something amazing together!</h3>
+<strong>👋 Hey there, I'm Tanish</strong> — your go-to developer and freelance powerhouse! With a flair for innovation, I proudly co-founded [Dotix](https://dotix.io) and [Duddy](https://duddy.io), revolutionizing the digital realm one project at a time. Let's create something amazing together!
 
 ###
 
+<!-- 
 <br clear="both">
 
 <div align="left">
   <img src="https://streak-stats.demolab.com?user=cttricks&locale=en&mode=daily&theme=dracula&hide_border=false&border_radius=8" height="150" alt="streak graph"  />
   
   <img src="https://github-readme-stats.vercel.app/api/top-langs?username=cttricks&locale=en&hide_title=false&layout=compact&card_width=320&langs_count=5&theme=dracula&hide_border=false" height="150" alt="languages graph"  />
-</div>
+</div> -->
 
 ###
 
