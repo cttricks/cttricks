@@ -20,6 +20,7 @@ I love taking complex problems, breaking them down into clean architectures, and
   - No-code app builder enabling anyone to create mobile apps via drag-and-drop UI and visual blockly logic.
   - Co-led core backend engineering: architected the compiler engine that outputs genuine native Swift and Kotlin apps, alongside platform auth, user profiles, subscription billing, and AI-assisted creation.
 - 📦 **Open Source & Packages:**
+  - **[@cttricks/spotlight](https://www.npmjs.com/package/@cttricks/spotlight):** Zero-dependency onboarding and feature walkthrough library. ([Live Demo](https://spotlight.cttricks.com)).
   - **[idb-vfs](https://www.npmjs.com/package/idb-vfs):** Zero-dependency browser-local virtual filesystem backed by IndexedDB.
   - **[@cttricks/maskid](https://www.npmjs.com/package/@cttricks/maskid):** Fast, zero-dependency YouTube-style ID obfuscation for integer primary keys.
 - 🖥️ **The Home Lab:**
@@ -54,6 +55,7 @@ Workflows       → Git, GitHub Actions, Postman, Linux CLI, Bash
 | **[Omni Base](https://cttricks.com/projects/omni-base)** | Systems Architect | Unified backend managing auth, configurations, and payouts for 20+ apps. |
 | **[Notix](https://cttricks.com/projects/notix)** | Creator & Architect | Resilient B2B alerts gateway (WhatsApp, SMS, Email, Webhooks with auto-retries). |
 | **[idb-vfs](https://www.npmjs.com/package/idb-vfs)** | Author (NPM Package) | Portable virtual filesystem abstraction layer running on browser IndexedDB. |
+| **[@cttricks/spotlight](https://www.npmjs.com/package/@cttricks/spotlight)** | Author (NPM Package) | Zero-dependency onboarding & guided tour library ([Demo](https://spotlight.cttricks.com)). |
 
 👉 *Explore full architecture write-ups and case studies on [cttricks.com/projects](https://cttricks.com/projects).*
 
