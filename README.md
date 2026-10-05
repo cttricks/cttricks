@@ -33,7 +33,7 @@ I love taking complex problems, breaking them down into clean architectures, and
 ```
 Frontend        → Next.js, React, TypeScript, Tailwind CSS, JavaScript
 Backend & APIs  → Node.js, Express, REST APIs, WebSockets, PHP, Golang
-Databases       → MySQL, SQLite, MariaDB, Redis, IndexedDB
+Databases       → MySQL, SQLite, Redis, IndexedDB, Supabase, Firebase
 Infrastructure  → Linux / Ubuntu Server, Docker, Nginx, AWS, Cloudflare
 AI & Tooling    → AI Agents, Function Calling, Model Context Protocol (MCP), LLM APIs
 Workflows       → Git, GitHub Actions, Postman, Linux CLI, Bash
